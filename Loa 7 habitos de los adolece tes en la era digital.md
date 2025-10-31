@@ -630,3 +630,349 @@ En el próximo capítulo, hablaremos sobre cómo tomar el control de tu vida. Ha
 > - ¿Cuáles son algunos de los paradigmas que tienes sobre otras personas? ¿Están basados en hechos o en suposiciones?
 > - ¿Cuál es tu centro de vida actual? ¿Está funcionando para ti?
 > - ¿Cómo puedes empezar a basar tu vida en principios?
+
+
+# SEGUNDA PARTE
+# La victoria privada
+
+---
+
+## La cuenta de banco personal
+### EMPEZAR CON EL HOMBRE EN EL ESPEJO
+
+Antes de que puedas ganar en la arena pública de la vida, primero debes ganar las batallas privadas dentro de ti mismo. Todos los cambios empiezan contigo. Nunca olvidaré cómo aprendí esta lección.
+
+“¿Qué pasa contigo? Me estás decepcionando. ¿Dónde está el Sean que conocí en la preparatoria?”, el entrenador me fulminó con la mirada. “¿Siquiera quieres estar aquí?”
+
+Yo estaba impactado. “Sí, por supuesto.”
+
+“Ay, por favor. Sólo estás haciendo los movimientos, pero tu corazón no está en ellos. Más vale que te pongas las pilas o los otros quarterbacks te ganarán y tú te quedarás calentando la banca.”
+
+Era mi segundo año en la Universidad Brigham Young (BYU), durante el campamento de pretemporada de futbol americano. Varias universidades me habían reclutado recién salido de preparatoria, pero yo escogí BYU porque tenía una tradición de producir quarterbacks campeones, como Jim McMahon y Steve Young, quienes pasaron a profesional y llevaron a sus equipos a ganar el Super Bowl. Aunque yo era el quarterback de reserva en ese entonces, ¡planeaba ser el siguiente campeón nacional!
+
+---
+
+> Estoy empezando con el hombre en el espejo.
+> Le estoy pidiendo que cambie su forma de ser.
+> Y ningún mensaje pudo haber sido más claro.
+> Si quieres hacer del mundo un lugar mejor,
+> Entonces mirate a ti mismo y cambia.
+> 
+> **“HOMBRE EN EL ESPEJO”, DE SIEDAH GARRETT Y GLEN BALLARD**
+
+Cuando el entrenador me dijo que estaba “apestando el campo”, lo sentí como una bofetada fría y dura en la cara. Lo que en verdad me molestó, sin embargo, fue que tenía razón. Aunque estaba practicando durante muchas horas, no estaba comprometido realmente. Me estaba frenando, y lo sabía.
+
+Tenía que tomar una decisión difícil: o dejaba el futbol o triplicaba mi compromiso. Durante varias semanas peleé una batalla dentro de mi cabeza y me enfrenté a mis múltiples miedos y dudas. ¿Tenía lo que se necesitaba para ser el quarterback titular? ¿Podría manejar la presión? ¿Era lo suficientemente grande? Pronto me di cuenta de que estaba asustado, asustado de competir, asustado de ser el centro de atención, asustado de intentar y tal vez fallar. Y todos estos miedos me estaban deteniendo para dar mi máximo.
+
+---
+
+> La verdadera tragedia es la tragedia del hombre que nunca en su vida se apoya a sí mismo para su gran esfuerzo, nunca se estira a su máxima capacidad, nunca se yergue a su máxima estatura.
+> 
+> **ARNOLD BENNETT**
+
+Dado que nunca he disfrutado de la tragedia, decidí fortalecerme a mí mismo para un gran esfuerzo. Así que me comprometí y di todo de mí. Decidí dejar de frenarme y empezar a entregar todo en la línea. No sabía si alguna vez tendría la oportunidad de ser el titular, pero si no la tenía, por lo menos iba a salir dándolo todo.
+
+Nadie me escuchó decir “Me comprometo”. No hubo aplausos. Fue simplemente una batalla interna que peleé y gané dentro de mi mente sobre un periodo de varias semanas.
+
+Una vez que me comprometí, todo cambió. Empecé a tomar riesgos y a mejorar mucho en el campo. Mi corazón estaba en ello ahora. Lo sabía y los entrenadores lo vieron.
+
+---
+
+Cuando empezó la temporada y los juegos pasaron uno a uno, yo me senté en la banca. Aunque estaba frustrado, seguí trabajando duro y seguí mejorando.
+
+A la mitad de la temporada era el gran juego del año. Jugaríamos contra la selección de la Fuerza Aérea, de nivel nacional, en ESPN, frente a 65 000 fans. Una semana antes del juego, el entrenador me llamó a su oficina y me dijo que yo sería el quarterback titular. ¡Gulp! Sobra decir que fue la semana más larga de mi vida.
+
+Finalmente llegó el día del partido. Para la primera patada mi boca estaba tan seca que casi no podía hablar. Pero después de unos minutos, me empecé a calmar y a dirigir a nuestro equipo hacia la victoria. Incluso me nombraron el mejor jugador de ese día en ESPN. Después, muchísima gente me felicitó por la victoria y por mi desempeño. Eso se sintió bien. Pero en realidad ellos no lo entendían. Ellos no sabían toda la historia. Ellos creían que la victoria se había dado en el campo ese día, frente al público. Yo sabía que había ocurrido meses antes, en la privacidad de mi propia cabeza, cuando decidí enfrentar mis miedos, dejar de frenarme y prepararme para un gran esfuerzo. Vencer a la Fuerza Aérea fue un reto mucho más fácil que superarme a mí mismo. Las victorias privadas siempre vienen antes de las públicas. Como dice el dicho: “Hemos conocido al enemigo, y somos nosotros mismos”.
+
+---
+
+### DE ADENTRO HACIA AFUERA
+
+Gateamos antes de caminar. Aprendemos a sumar antes que a hacer álgebra. Debemos arreglarnos a nosotros mismos antes de que podamos arreglar a otros. Si quieres hacer un cambio en tu vida, el lugar para empezar es contigo mismo, no con tus padres, tu maestro o tu novia o novio. Todo cambio empieza C-O-N-T-I-G-O. Piensalo. Es de adentro hacia afuera. No de afuera hacia adentro.
+
+Eso me recuerda uno de los escritos de un obispo anglicano:
+
+> _Cuando era joven y libre y mi_
+> _imaginación no tenía límites, soñaba con_
+> _cambiar al mundo;_
+> 
+> _Mientras me hice más viejo y sabio, me di cuenta de_
+> _que el mundo no cambiaría._
+> 
+> _Y decidí acortar mi visión_
+> _un poco y cambiar sólo mi país. Pero_
+> _también parecía inamovible._
+> 
+> _Mientras entraba en mis años crepusculares, en un_
+> _último intento desesperado, busqué cambiar sólo a_
+> _mi familia, a los cercanos a mí, pero, ay,_
+> _no querían hacerlo._
+> 
+> _Y ahora que estoy en mi lecho de muerte y_
+> _me doy cuenta (quizá por vez primera) de que si_
+> _sólo me hubiera cambiado a mí mismo primero,_
+> _entonces con el ejemplo podría haber influido a mi familia_
+> _y con su estímulo y apoyo_
+> _pude haber mejorado a mi país, y quién_
+> _sabe si pude haber cambiado al mundo._
+
+De esto se trata este libro. Cambiar de adentro hacia afuera, empezando con el hombre o la mujer en el espejo. Este capítulo (“La cuenta de banco personal”) y los que siguen sobre los hábitos 1, 2 y 3 tratan sobre _ti_ y tu carácter, o la victoria privada. Los siguientes cuatro capítulos, “La cuenta de banco de la relación” y los hábitos 4, 5 y 6 tratan sobre las relaciones, o la victoria pública.
+
+Antes de entrar de lleno en el hábito 1, veamos cómo puedes empezar a construir tu autoconfianza inmediatamente y lograr una victoria privada.
+
+---
+
+### La cuenta de banco personal
+
+Cómo te sientes sobre ti mismo es parecido a una cuenta de banco. Llamémoslo tu **cuenta de banco personal (CBP)**. Igual que una cuenta de cheques o de ahorro en un banco, puedes hacer depósitos y retiros de tu CBP por las cosas que piensas, dices o haces. Por ejemplo, cuando cumplo un compromiso que hice conmigo mismo, me siento en control. Eso es un depósito. Clinc. Por otra parte, cuando rompo una promesa que me hice, me siento decepcionado y hago un retiro.
+
+Así que déjame preguntarte. ¿Cómo está tu CBP? ¿Qué tanta confianza y seguridad tienes en ti mismo? ¿Eres rico o estás en la bancarrota? Los síntomas listados abajo pueden ayudarte a evaluar dónde estás.
+
+**Posibles síntomas de una CBP baja:**
+
+- Cedes ante la presión social fácilmente.
+- Batallas con sentimientos de insignificancia e inferioridad.
+- Estás demasiado preocupado por lo que otros piensen de ti.
+- Actúas arrogantemente para ayudarte a ocultar tus inseguridades.
+- Te autodestruyes entrándole duro a las drogas, la pornografía, el vandalismo o las pandillas.
+- Te pones celoso fácilmente, especialmente cuando alguien cercano a ti tiene éxito.
+
+**Posibles síntomas de una CBP saludable:**
+
+- Te defiendes a ti mismo y resistes la presión social.
+- No estás demasiado preocupado por ser popular.
+- Ves la vida como una experiencia generalmente positiva.
+- Confías en ti mismo.
+- Estás orientado hacia tus metas.
+- Te sientes feliz por los éxitos de otros.
+
+Si tu cuenta de banco personal está baja, no te sientas mal. No tiene que ser permanente. Sólo empieza haciendo pequeños y humildes depósitos hoy, deposita el valor de $1, $5 o $10. Sentirás cómo crece tu confianza. Los pequeños depósitos en un periodo de tiempo largo son la forma de tener una CBP rica y saludable.
+
+Con la ayuda de varios grupos de adolescentes, recopilé una lista de seis depósitos clave que pueden ayudarte a construir tu CBP. Y justo como la ley de movimiento de Newton, con cada depósito hay un retiro igual y opuesto.
+
+| DEPÓSITOS DE CBP | RETIROS DE CBP |
+|------------------|----------------|
+| _Cumple las promesas que te haces_ | _Romper las promesas que te haces_ |
+| _Haz pequeños actos de bondad_ | _Ver sólo por ti mismo_ |
+| _Sé gentil contigo mismo_ | _Tratarte mal_ |
+| _Sé honesto_ | _Mentir_ |
+| _Renúevate a ti mismo_ | _Cansarte_ |
+| _Amplifica tus talentos_ | _Enterrar tus talentos_ |
+
+---
+
+#### CUMPLE LAS PROMESAS QUE TE HACES
+
+¿Alguna vez has tenido amigos en los que no puedes confiar? Dicen que te mandarán un mensaje y no lo hacen. Prometen estar contigo el fin de semana y se les olvida. Después de un tiempo dejas de confiar en ellos. Sus compromisos no significan nada. Lo mismo sucede cuando continuamente haces y rompes tus promesas, como “voy a estudiar cuando llegue a casa”, y de pronto ya estás chateando con tus amigos en Facebook. Después de un tiempo fallándote a ti mismo, ya tampoco confías en ti.
+
+Deberíamos tratar los compromisos que hacemos con nosotros mismos tan seriamente como los que hacemos con las personas más importantes en nuestras vidas. Si te sientes fuera de control en la vida, enfócate en la única cosa que puedes controlar: a ti mismo. Hazte una promesa y cúmplela. Empieza con pequeños compromisos de cinco pesos que sepas que puedes completar, como no beber refresco hoy. Después de que hayas construido un poco de autoconfianza, pueden entonces ir por depósitos más difíciles de cien pesos, como decidir terminar con un novio abusivo o una novia, o superar una adicción.
+
+---
+
+#### HAZ PEQUEÑOS ACTOS DE BONDAD
+
+Recuerdo haber leído un comentario de un psiquiatra que dijo que si te sientes deprimido, lo mejor que puedes hacer es hacer algo por alguien más. ¿Por qué? Porque te enfoca hacia afuera, no hacia adentro. Es difícil estar deprimido mientras ayudas a alguien más. Irónicamente, un derivado de servir a otros es sentirte de maravilla.
+
+Recuerdo estar sentado en el aeropuerto un día, esperando mi vuelo. Estaba emocionado porque me habían pasado a primera clase. Y en primera clase las aeromozas son más amables, la comida es comestible y hay espacio para estirar tus piernas, para que no estén enrolladas como un pretzel. De hecho, tenía el mejor asiento en todo el avión. Asiento 1A. Antes de abordar, noté a una mujer joven que llevaba varias bolsas en las manos y estaba cargando a un bebé que lloraba. Al haber leído hacía poco un libro sobre hacer actos de bondad al azar, escuché a mi conciencia hablarme: “Anda, basura, dale tu boleto”. Peleé contra estas ideas durante un rato, pero eventualmente cedí:
+
+“Disculpe, creo que a usted le serviría más este boleto de primera clase que a mí. Sé lo difícil que puede ser viajar con niños. ¿No me permite cambiar los boletos?”
+
+“¿Está seguro?”
+“Oh, sí, En realidad no me importa. Estaré trabajando de todas formas.”
+“Pues, gracias. Es muy amable de su parte”, dijo mientras intercambiábamos boletos.
+
+Cuando estábamos abordando, me sorprendió ver lo bien que me hizo sentir verla sentarse en el 1A. De hecho, dadas las circunstancias, estar sentado atrás, cerca de los baños, tampoco parecía tan mala idea. En un momento durante el vuelo, tenía tanta curiosidad por ver cómo estaba que me levanté de mi asiento, caminó hasta la sección de primera clase y eché un vistazo a través de la cortina que separa la primera de la clase turista. Ahí estaba ella, con su bebé, ambos dormidos en un grande y cómodo asiento 1A. Y me sentí como un millón de dólares. Cline. Debo seguir haciendo esta clase de cosas.
+
+Esta dulce historia me la compartió una adolescente llamada Tawni, y es otro ejemplo de la alegría del servicio:
+
+_Hay una niña en nuestra colonia que vive en un duplex con sus padres y no tienen mucho dinero. Durante los últimos tres años, cuando yo crecía y ya no me quedaba mi ropa, mi mamá y yo se la llevábamos. Yo decía algo como “Pensé que te gustaría esto”, o “Me gustaría vértelo puesto”._
+
+_Cuando usaba algo que yo le daba, pensaba que era muy padre. Ella decía: “Muchas gracias por la nueva playera”. Yo respondía: “¡Ese color te queda muy bien!” Intentaba ser sensible para no hacerla sentir mal o darle la impresión de que yo pensaba que era pobre. Me hace sentir bien saber que estoy ayudándola a tener una mejor vida._
+
+Intenta por todos los medios invitar al niño que se sienta solo en clase a salir contigo y tus amigos. Escribe un correo electrónico de agradecimiento a alguien que haya hecho una diferencia en tu vida, como un amigo, un maestro o un entrenador. La próxima vez que estés en una caseta, paga por el auto atrás de ti. Dar les da vida a otros, pero también a ti. Me encantan estas líneas de _El hombre que nadie conoce_, de Bruce Barton, que ilustra este punto tan bien:
+
+_Hay dos mares en Palestina. Uno es fresco y hay peces en él. Salpicadas de verde adornan sus orillas. Los árboles extienden sus ramas sobre él y estiman sus raíces sedientas para beber de sus aguas sanadoras._
+
+_El río Jordán crea este mar con agua cristalina de las montañas. Así que ríe bajo la luz del sol. Y los hombres construyen sus casas cerca de él y las aves sus nidos, y cada tipo de vida es más feliz porque está ahí._
+
+El río Jordán fluye hacia el sur, hacia otro mar.
+
+Aquí no hay chapoteos de peces ni hojas que se muevan ni cantos de aves ni risas de niños. Los viajeros escogen otras rutas a menos que sea por negocios urgentes. El aire es pesado sobre sus aguas y ni hombre ni bestia ni ave se atreve a beber.
+
+¿Qué provoca la tremenda diferencia entre estos mares vecinos? No es el río Jordán. Vacía la misma agua buena en ambos. No es el suelo sobre el que están, no es el territorio a su alrededor.
+
+La diferencia es esta: El mar de Galilea recibe, pero no retiene al Jordán. Por cada gota que fluye hacia él, otra gota fluye hacia fuera. El dar y recibir es en cantidades iguales.
+
+El otro mar es abusivo y guarda sus ingresos celosamente. No se le puede tentar a tener un impulso generoso. Cada gota que obtiene, la conserva.
+
+El mar de Galilea da y vive. Este otro mar no da nada. Se le llama el Muerto.
+
+Hay dos clases de personas en este mundo. Hay dos clases de mares en Palestina.
+
+---
+
+#### SÉ GENTIL CONTIGO MISMO
+
+Ser gentil significa muchas cosas. Significa no esperar que seas perfecto mañana en la mañana. Si no maduras tan rápido, como a muchos nos pasa, sé paciente y permítete el tiempo necesario para crecer.
+
+Significa aprender a reír de las tonterías que haces. Yo tengo un amigo, Chuck, extraordinario cuando se trata de reírse de sí mismo y nunca tomar la vida demasiado en serio. Siempre me ha sorprendido cómo su actitud positiva atrae a las personas hacia él, casi magnéticamente.
+
+Ser gentil también significa perdonarte cuando la riegas. ¿Y quién no lo ha hecho? Debemos aprender de nuestros errores, pero no debemos apalearnos por ellos. El pasado es sólo eso, pasado. Considera lo que salió mal y por qué. Aprende, arréglalo si necesitas hacerlo. Luego déjalo y sigue adelante. Tira esa muñeca vudú a la basura.
+
+“Una de las claves de la felicidad”, dice Rita Mae Brown, “es una mala memoria”.
+
+Un barco en altamar durante muchos años recoge miles de percebes que se adhieren al fondo del barco y eventualmente pesan tanto que ponen en riesgo la seguridad. La forma más fácil de deshacerse de ellos es que el barco ancle en un puerto de agua dulce, libre de agua salada. Aquí, los percebes se sueltan por su cuenta y se caen. El barco entonces puede regresar al mar, libre de su carga.
+
+> Siempre sé una versión de primera de ti mismo, en lugar de una versión de segunda de alguien más.
+> 
+> **JUDY GARLAND, CANTANTE Y ACTRIZ**
+
+¿Estás cargando por todas partes percebes en la forma de errores, remordimientos y dolores pasados? Tal vez necesitas permitirte entrar en agua dulce durante un tiempo. Deja que la página se actualice de nuevo. Dejar ir la carga y darte a ti mismo una segunda oportunidad puede ser justo el depósito que necesitas ahora.
+
+Como canta Bruno Mars: “La vida es demasiado corta para tener remordimientos... Sólo tienes una vida para vivir, así que haz lo mejor que puedas”.
+
+---
+
+#### SÉ HONESTO
+
+El otro día busqué en Google la palabra _honesto_ y estas son algunas de las palabras relacionadas que encontré: honorable, incorruptible, moral, virtuoso, amante de la verdad, recto, verdadero, real, correcto, bueno, directo, genuino. No es un mal conjunto de palabras con que asociarse, ¿no te parece?
+
+La honestidad viene en muchas formas. Primero hay una honestidad personal. Cuando la gente te ve, ¿ve un artículo genuino, o apareces entre humo y espejos? Me parece que si soy siempre falso e intento ser algo que no soy, me siento inseguro sobre mí mismo y hago un retiro de mi CBP. Me encanta cómo lo pone la cantante Judy Garland: “Siempre sé una versión de primera de ti mismo, en lugar de una versión de segunda de alguien más”.
+
+Luego está la honestidad en tus actos. Si has sido deshonesto en el pasado, y creo que todos lo hemos sido, intenta ser honesto y nota cómo te hace sentir completo. Es un alivio no esconder quién eres ni tener que tapar tus actos. Esto va para tu perfil en internet también. Sólo porque la gente no puede verte directamente no quiere decir que puedas mentir; después de todo, tú sabrás que no estás diciendo la verdad. Recuerda, no puedes hacer algo malo y sentirte bien. Esta historia, por Jeff, es un buen ejemplo de ello:
+
+_En mi segundo año de preparatoria había tres chavos en mi clase de geometría que no sabían bien matemáticas. Yo era muy bueno. Les cobraba tres dólares por cada examen que les ayudaba a pasar. Los exámenes eran de opción múltiple, así que escribía en un papelito todas las respuestas correctas y se las pasaba._
+_Al principio sentí que estaba ganando dinero, como un buen trabajo. No estaba pensando cómo podía hacernos daño a todos. Después de un tiempo me di cuenta de que no debía seguir haciéndolo porque no estaban aprendiendo nada y sólo se iba a poner más difícil después. Hacer trampa en realidad no me estaba ayudando._
+
+Se necesita valor para ser honesto cuando la gente a tu alrededor parece salirse con la suya haciendo trampa en exámenes, mintiendo a sus padres y robando en el trabajo. Pero créeme, cada acto de honestidad es un depósito en tu CBP y cobrará fuerza. Como dice el dicho: “Mi fuerza es la fuerza de diez porque mi corazón es puro”. La honestidad es siempre la mejor política, incluso cuando no sea tan popular.
+
+---
+
+#### RENUÉVATE A TI MISMO
+
+Debes tomar tiempo para ti mismo, para renovarte y relajarte. Si no, quedarás exhausto y perderás tu placer por vivir.
+
+Parece que la mitad del planeta ha visto la película _Avatar_, el filme más taquillero de todos los tiempos. ¿Por qué fue tan exitoso? Además de efectos especiales innovadores y una gran cinematografía, creo que la historia llega a la meta porque todos necesitamos practicar lo que está predicando.
+
+La historia sucede en el año 2154, en Pandora, una luna boscosa en el sistema estelar de Alfa Centauri, y gira en torno al personaje de Jake Sully, un antiguo miembro de la marina, ahora paralizado, confiando a una silla de ruedas, atrapado e irrealizado. Al ser capaz de vivir mentalmente a través de su _avatar_, una réplica de tres metros de los nativos azules, se siente vivo porque puede correr y disfrutar de un cuerpo funcional, incluso si es sólo en su mente. Pero pronto se vuelve mucho más que eso. Al conocer a los nativos, Jake se enamora de Neytiri, una nativa Na’vi. Entre más tiempo pasa con Neytiri y su pueblo, más ve la belleza y la paz, así como el poder de su mundo, un mundo que los humanos de Jake, ruidosos y sedientos de recursos naturales, han venido a saquear y robar.
+
+El mensaje para nosotros es sobre rejuvenecer, sobre desconectarnos, sobre tomar el tiempo para escuchar el mundo natural alrededor de nosotros. Es sobre ponernos en un tiempo fuera autoimpuesto durante un rato.
+
+Ahora, no tienes que convertirte en un tipo casi humano, azul, de tres metros para encontrar la paz; pero como Jake Sully, encontrar tu propio lugar para escapar, tu propio santuario de alguna manera, es esencial. Ve a sentarte a algún lado y mira las nubes. Encuentra el tronco de un árbol y escucha al viento o a los pájaros, o incluso el latido de tu corazón. Si no tienes acceso a un increíble y brillante Árbol de las Almas, como Jake, quizá puedas encontrar una azotea, una banca en un parque, algún pedazo de pasto en alguna parte, sólo un lugar para estar solo. Puede que esto suene un poco sentimental, pero confía en mí, los humanos viven actualmente en un ataque constante de cosas y todos necesitamos dar un respiro y desconectarnos de vez en cuando, sólo para renovar nuestros espíritus.
+
+Theodore, de Canadá, tenía su escondite:
+
+_Cuando me estresaba mucho o cuando no me estaba llevando bien con mis padres, me iba al sótano. Ahí tenía un palo de hockey, una pelota y una pared de concreto sobre la que descargaba mis frustraciones. Sólo lanzaba la pelota durante media hora y subía las escaleras renovado. Hacía maravillas para mi juego de hockey, pero era incluso mejor para la relación con mi familia._
+
+Arian me dijo sobre su refugio. Cuando se estresaba mucho, se colaba en el auditorio de su escuela por la puerta de atrás. Completamente solo, en el silencio, la oscuridad y el inmenso espacio, se alejaba de todo el relajo, lloraba lo que fuera necesario o sólo se relajaba.
+
+Allison encontró un jardín para ella sola:
+
+_Mi papá murió en un accidente de trabajo cuando yo era chica. En realidad no conozco los detalles porque siempre he tenido miedo de hacerle muchas preguntas a mi mamá al respecto. Tal vez es porque he creado esta imagen perfecta de él en mi cabeza y no quiero que cambie. Para mí, él es un ser humano perfecto que me protegería si estuviera aquí. Está conmigo todo el tiempo en mis pensamientos, e imagino cómo actuaría y me ayudaría si estuviera aquí._
+
+_Cuando en verdad lo necesito, subo a la resbaladilla del parque de juegos de la primaria local. Tengo esta sensación extraña de que si puedo estar en el lugar más alto, podré sentirlo. Así que subo a la resbaladilla y sólo me siento ahí. Le hablo en mi mente y puedo sentirlo hablar en mi mente. Quiero que me toque, pero por supuesto sé que no puede. Voy ahí cada vez que algo me molesta realmente y sólo comparto mis preocupaciones con él._
+
+Además de encontrar un lugar para refugiarte, hay tantas formas de renovarte y aumentar tu CBP. El ejercicio puede hacerlo, como salir a caminar, a correr, bailar o hacer _kickboxing_. Algunos adolescentes han sugerido ver películas viejas, hablar con amigos que te hacen reír o grabar música y hacer videos en tu computadora. Otros han encontrado que escribir en sus diarios los ayuda a seguir adelante.
+
+El hábito 7, afilar tu sierra, es sobre tomar el tiempo para renovar tu cuerpo, tu corazón, tu mente y tu alma. Hablaremos más sobre ello cuando lleguemos ahí. Así que aguanta.
+
+---
+
+#### AMPLIFICA TUS TALENTOS
+
+Encontrar y luego desarrollar un talento, un pasatiempo o una pasión puede ser uno de los mejores depósitos que puedas hacer en tu CBP.
+
+¿Por qué será que, cuando pensamos en talentos, pensamos en términos de talentos populares _tradicionales_, como el atleta, la bailarina o el estudiante premiado? La verdad es que los talentos vienen en toda una variedad de paquetes. No pienses en corto. Puede que tengas un don para leer, escribir o hablar. Puede que tengas el don del ritmo, o de ser chistoso, de recordar detalles o de poder aceptar a otros. Puedes tener habilidades de organización, musicales o de liderazgo. No importa dónde esté tu talento, ya sea el ajedrez, el teatro o la patineta; cuando haces algo que te gusta hacer y para lo que tienes talento, es emocionante. Es una forma de autoexpresión. Y como atestigua esta niña, aumenta la autoestima.
+
+_Puede que mueras riendo cuando te diga que tengo un talento real y un amor por las hierbas. Y no me refiero a la que te fumas, sino a las hierbas y flores que crecen por todas partes. Me di cuenta de que siempre las notaba, mientras que otros sólo querían cortarlas._
+
+_Así que empecé a recogerlas y prensarlas, y, con el tiempo, empecé a hacer hermosos cuadros y postales y objetos de arte con ellas. He podido alegrar a muchos tristones con una de estas tarjetas personalizadas. Frecuentemente me piden hacer arreglos de flores para otros o compartir mi conocimiento para preservar plantas prensadas. Me ha dado tanta alegría y confianza sólo saber que tengo un don especial y una apreciación por algo que mucha gente ignora. Pero incluso va más allá de eso, me ha enseñado que si hay tanto en sólo simples hierbas, ¿qué no habrá en todo lo demás de la vida? Me ha hecho ver profundamente. Me vuelve una exploradora._
+
+Mi cuñado Bryce me dijo cómo desarrollar un talento le ayudó a construir su autoestima y encontrar una carrera en la que pudiera hacer una diferencia. Su historia sucedió en la cordillera Teton que se extiende sobre las planicies de Idaho y Wyoming. El Gran Teton, el pico más alto de Teton, sobresale 4.2 kilómetros sobre el nivel del mar.
+
+Cuando era niño, Bryce había perfeccionado su bateo. Hasta su trágico accidente. Mientras jugaba con una pistola de aire comprimido, Bryce se disparó accidentalmente en un ojo. Al temer que la cirugía afectara permanentemente su visión, los doctores dejaron la munición en su ojo.
+
+Meses después, cuando Bryce volvió al béisbol, no lograba darle a la pelota. Había perdido su percepción de profundidad y mucha de su visión en un ojo, así que ya no podía jugar béisbol. Bryce dijo: “Un año antes había sido el jugador estrella y ahora no podía pegarle a la pelota. Estaba convencido de que nunca sería capaz de hacer nada. Fue un golpe muy duro para mi confianza”.
+
+Los dos hermanos mayores de Bryce eran muy buenos para muchas cosas, y él se preguntaba qué podía hacer ahora, dada su nueva incapacidad. Ya que vivía cerca de los Tetons, decidió intentar escalar. Así que llegó a una tienda local y compró soga de nailon, mosquetones, tizas, pitones y otros artículos para escalar. Revisó libros de alpinismo y estudió cómo atar nudos, enganchar un arnés y escalar a rapel. Su primera experiencia escalando fue a rapel en la chimenea de un amigo. Pronto empezó a escalar algunos picos pequeños alrededor del Gran Teton.
+
+Bryce pronto se dio cuenta de que tenía un don para ello. Al contrario de muchos de sus compañeros escaladores, su cuerpo era fuerte y ligero, y parecía estar perfectamente construido para escalar en roca.
+
+Después de entrenar durante varios meses, Bryce finalmente escaló el Gran Teton él solo. Le tomó dos días. Llegar a su meta le dio un impulso masivo a su seguridad.
+
+Él llegaba a los Tetons, corría hasta la base de la subida, escalaba y corría de regreso. Bryce se volvió más rápido y más fuerte cada vez. Su amigo Kim notó que tomaba en serio el montañismo y le dijo: “Oye, deberías ir por el récord del Gran Teton”.
+
+Kim le contó todo a Bryce. Un guardabosque escalador, llamado Jock Glidden, había puesto un récord en el Gran al correr hasta la cima y de regreso en cuatro horas y once minutos. “Eso es absolutamente imposible”, pensó Bryce. “Me gustaría conocer a este tipo algún día”. Pero mientras Bryce siguió haciendo este tipo de carreras, su tiempo se volvió más rápido y Kim siguió diciendo: “Debes ir tras el récord. Sé que puedes lograrlo”.
+
+En una ocasión, Bryce finalmente conoció a Jock, el superhumano con el récord insuperable. Bryce y Kim estaban sentados en la tienda de Jock, cuando Kim, un escalador reconocido también, le dijo a Jock: “Este tipo está considerando ir tras tu récord”. Jock miró el cuerpo de 65 kilos de Bryce y se carcajeó, como diciendo: “No inventes, enano”. Bryce se sintió devastado, pero pronto se recuperó Y Kim siguió afirmando: “Puedes hacerlo”.
+
+Una mañana, muy temprano, cargando una pequeña mochila naranja y una chaqueta ligera, Bryce corrió hasta la cima del Gran y de regreso en tres horas, cuarenta y siete minutos y cuatro segundos. Se detuvo sólo dos veces: una vez para sacer rocas de sus tenis y otra para firmar el registro en la cima, lo que probaba que había estado ahí. Se sentía completamente increíble. No sólo había roto el récord, ¡lo había hecho pedazos!
+
+Algunos años después, Bryce recibió una llamada sorpresa de Kim. “Bryce, ¿ya oíste? Acaban de romper tu récord”. Por supuesto, añadió, “Necesitas recuperarlo. ¡Sé que puedes!” Un hombre llamado Creighton King, quien recientemente había ganado el reconocido maratón del pico de Pike, en Colorado, corrió a la cima y de regreso en tres horas, treinta minutos y nueve segundos.
+
+Dos años después de su último asalto a la montaña y diez días después de que rompieran su récord, Bryce se detuvo en el estacionamiento de Lupine Meadows, en la base del Gran Teton, con sus tenis para correr nuevos, listo y ansioso por romper el récord de King. Con él estaban amigos, familiares, Kim y un equipo de la estación de televisión local, para filmar su carrera.
+
+Como antes, sabía que la parte más difícil del ascenso sería el aspecto mental. Él obviamente no quería convertirse en uno de los dos o tres que morían cada año intentando escalar el Gran.
+
+El cronista de deportes Russell Weeks describe correr el Gran de la siguiente manera: “Desde el estacionamiento te enfrentas a una carrera de casi nueve o diez millas, subiendo por caminos zigzagueantes, a través de un cañón, subiendo por dos morrenas glaciares, dos depresiones, un hueco entre dos picos y a escalar 214 metros sobre la pared occidental del Gran, hacia la cima. La subida y bajada de altitud desde Lupine Meadows hacia la cima y de regreso es de casi 4 572 metros Leigh Ortenburger en su _Guía de alpinismo para la cordillera Teton_, enlista sólo los últimos 214 metros como un ascenso de tres horas”.
+
+Bryce se echó a correr. Mientras ascendía y ascendía por la montaña, su corazón latía fuertemente y sus piernas quemaban. La concentración era intensa. Al escalar los últimos 214 metros en doce minutos, alcanzó la cima en una hora y cincuenta y tres minutos, y puso su tarjeta de verificación bajo una roca. Él sabía que si rompía el récord de King tendría que hacerlo bajando. El descenso se volvió tan empinado a veces que estaba dando zancadas de 3 o 4.5 metros. Pasó a unos amigos que luego le dijeron que su rostro se había puesto morado por la falta de oxígeno. Otro grupo de escaladores, aparentemente sabía que buscaba el récord porque, mientras pasaba, le gritaron: “¡Sigue! ¡Sigue!”
+
+Entre vítores, Bryce regresó a Lupine Meadows con las rodillas sangrando, los tenis rotos y un terrible dolor de cabeza, tres horas, seis minutos y veinticinco segundos después de haberse ido. ¡Había hecho lo imposible!
+
+La voz corrió rápido y Bryce se convirtió en el escalador más rápido del oeste. “Me dio una identidad”, dice Bryce. “Todos quieren ser reconocidos por algo, y yo también. Mi habilidad para escalar me dio algo por qué trabajar y fue una gran fuente de autoestima. Era mi forma de expresarme”.
+
+Hoy, Bryce es fundador y presidente de una compañía muy exitosa que hace mochilas profesionales para escaladores y corredores de montaña. Lo más importante, Bryce ha encontrado una forma de vivir haciendo lo que ama hacer. Es en lo que es bueno, y ha usado su talento para bendecir su vida y las vidas de muchos otros.
+
+Ah, por cierto, el récord todavía sigue. (Pero no se les ocurran ideas locas, ¿eh?). Y Bryce tiene todavía esa munición en su ojo.
+
+Así que, mis amigos, si necesitan una inyección de confianza, empiecen a hacer depósitos en sus CBP desde hoy. Sentirán los resultados de inmediato. Y recuerden, no necesitan subir una montaña para hacer un depósito. Hay, vamos, no sé, mil millones y una formas más seguras.
+
+---
+
+## AHORA, UNOS AVANCES…
+
+A continuación hablaremos de las muchas formas en que tú y tu perro son diferentes. ¡Sigue leyendo y verás a qué me refiero!
+
+---
+
+### Pasitos para tu CBP
+
+#### Cumple las promesas que te haces
+
+- Levántate cuando suena tu alarma. No presiones el botón para posponerla o la apagues y te vuelvas a dormir.
+- Identifica una tarea fácil que necesita hacerse hoy, como practicar el piano, poner una carga de ropa en la lavadora o terminar un libro para una tarea de literatura. Decide cuándo lo harás. Luego cumple tu palabra y hazlo.
+
+#### Haz actos de servicio al azar
+
+- En algún momento del día de hoy, haz un acto de bondad anónimo, como sacar la basura, arreglar la laptop de tu mamá o tender la cama de alguien.
+- Organiza un ataque positivo de redes sociales. Ponte de acuerdo con tus amigos para atacar a alguien por redes sociales con palabras amables y cumplidos.
+
+#### Amplifica tus talentos
+
+- Menciona un talento que te gustaría desarrollar este año. Escribe pasos específicos para lograrlo.
+  
+  **Talento que quiero desarrollar este año:** ______
+  
+  **Cómo lo logro:** ______
+
+- Haz una lista de los talentos que más admiras en otras personas.
+
+  **Persona:** ______
+  
+  **Talentos que admiras:** ______
+
+#### Sé gentil contigo mismo
+
+- Piensa en un área de la vida en la que te sientes inferior. Ahora respira profundamente y recuerda que no es el fin del mundo.
+- Pasa todo un día sin hablarte negativamente. Cada vez que te caches menospreciándote, debes reemplazarlo con tres pensamientos positivos sobre ti mismo. Inténtalo.
+
+#### Renuévate a ti mismo
+
+- Decide una actividad divertida que pueda subirte el ánimo y hazla hoy. Por ejemplo, súbele a la música y baila.
+- ¿Te sientes letárgico? Párate ahora mismo y ve por una caminata rápida alrededor de la manzana.
+
+#### Sé honesto
+
+- La próxima vez que alguien te pregunte qué estás haciendo o cómo te sientes, comparte la historia completa. No dejes fuera información que se pueda malinterpretar o sea engañosa.
+- Durante un día, intenta no exagerar o adornar. ¡Buena suerte!
