@@ -199,3 +199,240 @@ Los guerreros tienen un dios muy pequeño. ¿Estoy acaso hablando de usted? Si e
 Hay un camino mejor. ¿Lo recuerda? La puerta sigue estando abierta. De usted dependerá aceptar la invitación.  **"Queda todavía un reposo sabático"**  para que usted lo disfrute.
 
 ¿Es mejor descansar, porque, entonces, seguir batallando?
+
+# Jesús: La Vida Más Grande De Todas
+## Capítulo Ocho: El Asombroso Poder de Jesús
+
+Las historias de hechos milagrosos atraían a visitantes de todos los puntos del imperio romano a Saïs, en Egipto, para ver el magnífico templo dedicado a Minerva, la diosa romana de las artes, la poesía y la sabiduría. Después de que pagaban sus votos, los peregrinos adinerados se reunían entorno al centro de culto, un gigantesco altar dorado alrededor del cual estaba una serpiente de bronce cuyo cuerpo curvado podía verse sobre su superficie. En uno de los lados estaba Baco, el dios del vino; y en el otro, Diana, la diosa madre. Cada uno de ellos sostenía cuidadosamente un cántaro sobre el altar, esperando pacientemente su señal para ofrecer sus libaciones de leche y miel a Minerva.
+
+En el momento señalado, los sacerdotes de Minerva entraban al santuario, preparaban un segundo altar y lo prendían. Mientras el fuego consumía la madera, el olor a incienso impregnaba todo el recinto; este incienso se deslizaba después lentamente hacia arriba y atraves del techo abierto, supuestamente hasta las ventanas de la nariz de la diosa. Luego, como si estuvieran ansiosos por participar en la ceremonia, Baco y Diana derramaban espontáneamente sus libaciones. Mientras el vino y la leche fluían de los cántaros y se mezclaban en el altar dorado, la serpiente de bronce emitía un ruidoso silbido de aprobación. Era el milagro por el cual los devotos habían viajado desde tan lejos y pagado tanto, con el fin de ser testigos de esta experiencia.
+
+La religión era un gran negocio en el mundo romano. Un templo podía dar a conocer una ciudad, si los milagros eran muy impresionantes o si las manifestaciones sobrenaturales eran suficientemente creíbles. La gente anhelaba tanto tener un encuentro con lo sobrenatural, que los líderes de las ciudades enviaban delegados a la biblioteca de Alejandría para solicitar los servicios de los obradores de milagros. Nosotros podríamos llamarlos arquitectos e ingenieros, pero hombres como Filón de Alejandría, Cresibio y Heron de Alejandría, podían lograr que los templos hicieran lo imposible. La mecánica de los fluidos podía suministrar agua sagrada, abrir puertas y hacer que estatuillas talladas giraran y bailaran. Cántaros ingeniosamente hechos, con cámaras y tubos ocultos, creaban la ilusión de convertir el agua en vino. El vapor hacía que las serpientes emitieran un silbido y que grandes órganos produjeran un gemido como si se tratara de un dios satisfecho.
+
+Gracias a la ingeniosa mezcla de antiguas tecnologías, los devotos oían el sonido de la lluvia, del viento y de truenos retumbantes, acompañados por relámpagos. Los magos del templo asombraban a los adoradores de Serapis haciendo que una cuadriga de hierro se levantara y flotara, quizás por medio de una gigantesca piedra imán montada en el techo del templo.
+
+Como era de esperarse, la emoción y la fascinación que se experimentaba en los templos paganos se convirtieron en una fuente de tensión para los monoteístas hebreos del primer siglo. En términos de su arquitectura y de su gran tamaño, el templo de Herodes era la envidia del mundo antiguo, pero los judíos adoraban aún a un Dios silencioso e invisible que se rehusaba a divertir a los visitantes. Ni siquiera se podía pronunciar su nombre por ser demasiado sagrado. Con todo, la perspectiva de experimentar lo sobrenatural resultaba irresistible. Falsos profetas eran escuchados con frecuencia fuera del templo por sus trucos de prestidigitación y las ilusiones cuidadosamente preparadas. De hecho, era tan común el uso de la magia, que el público venía para esperar un espectáculo. No bien comenzaba un orador a enseñar, alguien preguntaba: "¿Qué señal haces?", después de lo cual el supuesto profeta tenía que impresionar a sus oyentes con algo asombroso, o los perdía.
+
+El número de los engañados sería menor hoy en día, porque la mente moderna ha sido condicionada para suponer que detrás de cada misterio hay una explicación perfectamente válida y científica. Sin embargo, no podemos permitirnos ser culpables de lo que los historiadores llaman **"arrogancia temporal"**. Este es el concepto de que los pueblos antiguos eran generalmente supersticiosos, y que automáticamente buscaban una explicación sobrenatural para cualquier cosa que los desconcertara. Veían el mundo de una manera diferente, pero no eran estúpidos ni fáciles de engañar.
+
+Hoy en día, la gente sensata vive en una incómoda tensión entre el dogma de la ciencia, que niega la existencia de lo sobrenatural, y el fanatismo de algunos televangelistas que piden dinero. Para los que están dispuestos a creer, las exhibiciones sobrenaturales de los sanadores por fe no son muy convincentes. Esos predicadores realizan sus actos de ilusionismo en medios muy controlados, y las "sanidades" se limitan a leves mejorías de los enfermos, o se atribuyen resultados difíciles de verificar.
+
+Pese a los curadores de fe y a los escépticos, hay otra esfera que trasciende lo que nosotros podemos experimentar por medio de los sentidos, y que, en ocasiones especiales, Dios nos permite ver y tocar, ya que los milagros nos suceden todos los días. "Si de verdad sucedieran", me dijo una vez un colega, "los llamaríamos hechos normales". Aunque comunes en la Biblia, los milagros son, en realidad, extremadamente raros en la historia. Dios los reserva para periodos de tiempo extraordinarios antes de hacer un gran cambio en la manera como él se relaciona con su creación. Por ejemplo, después de cuatrocientos años de silencio, Dios sorprendió a los egipcios y a los hebreos con una serie de hechos milagrosos, mientras preparaba al pueblo de su pacto para la tierra prometida.
+
+Para evitar cualquier confusión, permítanme definir primero lo que quiero decir con la palabra milagro. Cuando Dios creó todas las cosas de la nada, también hizo las leyes de la naturaleza, tales como la gravedad y la termodinámica, para dar orden y propósito a todo lo que hay en el universo. Sin embargo, esto no quiere decir que él fue un Dios relojero que armó el universo, le dio cuerda y lo ha dejado hasta que la cuerda se le acabe, sin involucrarse más con él. Aun cuando Dios permite, la mayor parte del tiempo, que este cosmos funcione de acuerdo con las leyes naturales, no ha habido ningún momento en el cual él no esté directa y personalmente involucrado en cada detalle de la vida. Con todo, su relación con la creación rara vez lleva aparejado un milagro.
+
+A veces, sin embargo, Dios desafía dramáticamente las leyes de la naturaleza para certificar que un hecho ha sido divinamente ordenado. Divide las aguas de un mar para hacer un camino seco de un lado al otro (Exo. 14:22). Hace que una asna hable con un ser humano (Num. 22:28). Hace que el hierro de un hacha flote en el agua (2 Rey. 6:5,6). Permite que tres jóvenes entren a un fuego ardiente y salgan de allí sin que les chamusque un solo cabello (Dan. 3:23-26). Y, como leímos en un capítulo anterior, permite que una virgen conciba un niño sin la intervención de un ser humano. Estos son milagros auténticos, hechos dramáticos e innegables de Dios con los cuales él demuestra su autoridad indiscutible sobre el universo. Él lo creó y lo sigue gobernando. Los milagros por lo general corrigen problemas que son "imposibles" dentro de la estructura normal de la vida. Ellos nos recuerdan a nosotros, como le recordó el ángel a María, que **"nada hay imposible para Dios"** (Luc. 1:37).
+
+### LA CONFRONTACIÓN DE LO IMPOSIBLE
+
+Después que Adán y Eva decidieran desobedecer a Dios en el jardín del Edén, el mundo cambió. Como imitando la rebelión de la primera pareja, la creación eligió tomar su propio camino. El mundo que Dios había creado para que fuera nuestro hogar perfecto, ahora nos aflige con desgracias, tristezas, hambre, caos, enfermedades y con la máxima afrenta a la creación de Dios: la muerte. El hombre, por haber elegido pecar y continuar haciéndolo, con frecuencia enfrenta situaciones humanamente sin salida. Pero Jesús vino a la tierra para que el pecado no tuviera la última palabra en el conflicto cósmico que hay entre el bien y el mal. Dios se convirtió en uno de nosotros, y ahora tenemos un abogado. Ahora tenemos una esperanza que nos sirve de sostén durante y más allá de nuestras aflicciones, y esa esperanza puede transformar nuestra comprensión de las cosas. Gracias a Jesús, podemos contemplar la vida como una serie de grandes oportunidades brillantemente disfrazadas de situaciones sin salida.
+
+**Poder sobre lo trivial.** Poco después de dar inicio a su ministerio público, Jesús asistió a una fiesta de bodas, una fiesta espléndida, de toda una semana de duración, ofrecida por los padres del novio y a la cual asistieron decenas de parientes y amigos. Como puede dar testimonio cualquier organizador de eventos, ninguna boda está exenta de la llamada ley de Murphy. Novios que se desmayan. Novias que tropiezan. Niños portadores de los anillos que se meten el dedo en la nariz. Tortas que se desmoronan. Y, en el caso de esta familia de Caná de Galilea, a alguien se le había olvidado hacer un pedido suficiente de vino, lo cual era una humillante metedura de pata en aquel tiempo y en aquella cultura. Cuando la madre de Jesús se dio cuenta del problema, se lo comunicó a su hijo sin titubear. Después de un breve diálogo, ella dejó en manos de Jesús esa problemática situación; dijo después a los criados: **"Haced todo lo que él os diga"**, y luego regresó a la fiesta.
+
+Jesús les dijo:
+
+> Llenad de agua las tinajas.
+> Y las llenaron hasta el borde. Luego les dijo:
+> Sacad ahora y llevadlo al encargado del banquete.
+> Se lo llevaron; y cuando el encargado del banquete probó el agua ya hecha vino, y no sabía de donde venía (aunque los sirvientes que habían sacado el agua sí lo sabían), llamó al novio y le dijo:
+> Todo hombre sirve primero el buen vino; y cuando ya han tomado bastante, entonces saca el inferior. Pero tú has guardado el buen vino hasta ahora.
+> 
+> *Juan 2:7-11*
+
+Este principio de señales hizo Jesús en Caná de Galilea, y manifestó su gloria; y sus discípulos creyeron en él.
+
+El transformar el agua en vino era, en el tiempo de Jesús, un trillado truco del templo que no impresionaba en lo más mínimo a ningún judio, una artimaña parecida a lo que es hoy en día sacar un conejo de un sombrero. Al igual que cualquier treta conocida para engañar a los niños, el truco requería de un aparato especial preparado con anticipación, y que exigía una gran disposición por parte de la persona que lo presenciaba para poder creerlo.
+
+Jesús pudo haber solucionado la falta de vino de varias maneras, pero, quizás con un abrir y cerrar de ojos y con una sonrisa, prefirió hacer en realidad lo que solo podían simular los ilusionistas en los templos paganos. Lo que él iba a hacer, nadie podría objetarlo. Mientras Jesús veía la situación desde cierta distancia, los criados tomaron las tinajas y las llenaron de agua hasta el tope. Luego, en algún punto entre los recipientes de piedra y el encargado del banquete, se produjo la gloriosa transformación. No hubo ningún anuncio dramático, ningún "¡abracadabra!", ningún truco, ningún aplauso. Jesús simple y calladamente hizo uso de su derecho divino y transformó una situación embarazosa en un éxito social para la familia del novio. Nadie habría sufrido mucho si él no hubiera actuado; lo que estaba en juego no era de singular importancia, e incluso alguien pudiera considerarlo trivial. Sin embargo, la difícil situación en que se encontraban sus amigos era importante para él.
+
+Curiosamente, Juan decidió llamar una "señal" a lo sucedido. Después de ver a Jesús utilizar su poder para realizar un sencillo acto de bondad, la fe de sus discípulos se hizo más profunda.
+
+**Poder sobre la distancia.** Poco tiempo después, Jesús y sus discípulos volvieron de nuevo a Caná. La ciudad de Cafarnaúm, donde Pedro, Andrés, Juan y Jacobo tuvieron una vez su empresa pesquera, quedaba a unos 32 km de la costa norte del mar de Galilea, a no menos de un viaje de 8 horas a pie. En ese momento, Jesús era alguien muy conocido, y por esa razón la noticia de su regreso corría velozmente. Cuando un acaudalado aristócrata, sin duda un saduceo, oyó la noticia, viajó desde su hogar en Cafarnaúm a Caná por un asunto urgente: se le estaba muriendo su hijo.
+
+Los saduceos eran una clase singular de judíos. Conservadores de acuerdo con las normas judías, algunos dirían que por pura conveniencia, no aceptaban ninguna enseñanza o tradición que estuviera más allá de lo podía encontrarse en el Pentateuco (los primeros cinco libros del Antiguo Testamento), las únicas Escrituras salidas de la mano de Moisés. No creían en la vida después de la muerte, tampoco en la resurrección, ni en ángeles, ni en espíritus. El historiador Flavio Josefo en su obra *Guerras* dice que ellos creían que Dios estaba indeciblemente distante, que había dejado que cada quien se las arreglara como pudiera, y que no había castigo ni recompensa por toda la eternidad. Por consiguiente, los saduceos creían que era el hombre quien debía aplicar el castigo por el pecado, y que este debía ser inmisericorde y severo. En su obra *Antigüedades*, el historiador judío Josefo los calificaba de contenciosos con todo el mundo, incluso entre ellos mismos, y unos que "pensaban que era un honor el poder discutir con los maestros de filosofía que ellos frecuentaban".
+
+Los saduceos eran los deístas de su tiempo, ardientemente escépticos en cuanto a todo lo sobrenatural, y fatalistas hasta la médula. Creían que cada persona creaba su propio destino; por consiguiente, merecía tener el destino que se habían labrado, incluyendo las enfermedades, la pobreza, las desgracias e incluso la forma de morir. Por lo tanto, el hecho de que un saduceo estuviera frente a Jesús pidiéndole la milagrosa intervención divina, era una gran ironía.
+
+Entonces Jesús le dijo:
+
+> A menos que veáis señales y prodigios, jamás creeréis.
+> 
+> El oficial del rey le dijo:
+> Señor, desciende antes que muera mi hijo.
+> 
+> Jesús le dijo:
+> Ve, tu hijo vive
+> 
+> *Juan 4:48-50*
+
+Notemos la singular preocupación del aristócrata. Quizás en otro momento habría refutado a Jesús o se habría burlado de sus enseñanzas al exigirle que diera una demostración de magia. En otras ocasiones, los fariseos se gozaban poniendo trampas verbales e inventando escenarios disparatados para demostrar lo absurdo de cualquier enseñanza que trascendiera la experiencia en el aquí y el ahora. La palabra *fe* no estaba en el vocabulario de los saduceos. Pero el hombre que estaba parado frente a Jesús ya no era un saduceo, ni un rico aristócrata, ni un poderoso funcionario de palacio. Era el padre angustiado de un hijo que se estaba muriendo. Su vulnerabilidad le dio a Jesús una magnífica oportunidad para ignorar su escepticismo superficial, para ofrecerle una gentil enseñanza acerca de la misericordia y la fe.
+
+Observemos también la respuesta de Jesús. Cuánto más tranquilizador habría sido para el padre que Jesús se hubiera levantado y mirando en dirección a Cafarnaúm gritara: "¡Se sanó!". Y aún mejor que hubiera extendido sus brazos como enviando su poder sanador sobre la grandísima distancia. Pero, en vez de eso, le dijo tranquilamente: "Ve a tu casa; él se pondrá bien".
+
+> El hombre creyó la palabra que Jesús le dijo y se puso en camino. Mientras todavía descendía, sus siervos salieron a recibirle diciendo que su hijo vivia. Entonces él les preguntó la hora en que comenzó a mejorarse, y le dijeron:
+> Ayer, a la hora séptima le dejó la fiebre.
+> El padre entonces entendió que era aquella hora cuando Jesús le había dicho: "Tu hijo vive". Y creyó él con toda su casa.
+> 
+> *Juan 4:50-53*
+
+Jesús habló con sencillez; la lección no tuvo nada de complicada. Yo digo; tú cree mi Palabra; tu hijo se pondrá bien. Nosotros complicamos las cosas que Dios ha hecho sencillas cuando vemos al mundo a través de los ojos humanos. Queremos ver antes para creer después, y suponemos que él tiene las mismas limitaciones que nosotros. Juan llamó también una "señal" a este acontecimiento. El aristócrata y su familia habían descubierto que la omnipotencia y la omnipresencia de Dios no están limitadas por cosas insignificantes como la distancia; para él, 32 km ó 32.000 km es la misma cosa.
+
+**Poder sobre el tiempo.** También tenemos la tendencia a pensar que cuanto más tiempo tenga algo, más difícil será cambiarlo, tal vez porque el tiempo sabe cómo cementar la realidad en nuestra mente y formar una barrera impenetrable contra la esperanza. Las tradiciones y las supersticiones se fijan con el paso de las generaciones, y pueden tener el mismo efecto aturridor sobre nuestra mente.
+
+> En Jerusalén, junto a la puerta de las Ovejas, hay un estanque con cinco porticos que en hebreo se llama Betesda. En ellos yacía una multitud de enfermos, ciegos, cojos y paralíticos.
+> 
+> *Juan 5:2,3*
+
+Este complejo de dos estanques rodeado de pórticos estaba justo debajo de la esquina nororiental del templo de Herodes y parece haber sido un sanatorio religioso llamado un *asclepieion*. Los griegos creían que Asclepio (Esculapio), el dios de la medicina y de las curaciones, era el bienhechor y compasivo salvador de los enfermos.
+
+A.B. du Toit, en *The New Testament Milieu* dice:
+
+> En el templo dedicado al servicio de Esculapio había unos espaciosos corredores en los cuales se acostaban los enfermos y eran sanados mientras dormían. Este sueño en el templo era conocido como incubatio. Mientras dormían, los enfermos soñaban que estaban siendo sanados por la intervención de Esculapio, de modo que a la mañana siguiente se despertaban sanos. Los paralíticos podían caminar, los mudos hablar y los ciegos ver. Muchas personas experimentaban una curación milagrosa, y en gratitud ofrendaban imágenes de oro o de plata de los miembros del cuerpo que habían sido sanados, o traían ofrendas al templo. Esculapio era alabado como el dios de las curaciones y como un salvador que había venido en ayuda de los seres humanos para cuidar de ellos.
+
+Cuando Jesús llegó a Jerusalén para celebrar una de las fiestas judías, visitó el sanatorio de la ciudad. Juan no dice por qué razón, pero podemos imaginar el propósito. Jesús iba con frecuencia a los lugares que hacían sentir incómodos a los líderes religiosos. Durante su visita, Jesús se acercó a un hombre que había sido debilitado por la enfermedad por casi 40 años, toda una vida en aquel tiempo.
+
+> Cuando Jesús lo vio tendido y supo que ya había pasado tanto tiempo así, le preguntó:
+> —¿Quieres ser sano?
+> Le respondió el enfermo:
+> 
+> Señor, no tengo a nadie que me meta en el estanque cuando el agua es agitada; y mientras me muevo yo, otro desciende antes que yo.
+> 
+> *Juan 5:6,7*
+
+Aparentemente, la superstición prometía que la agitación del agua ofrecía una curación especial a los que pudieran llegar hasta ella. Pero el hombre estaba solo, y por una cruel ironía, la carrera hacia el estanque la ganaba quien estuviera más capacitado físicamente para poder llegar primero. De todos los casos desesperados que había en el sanatorio, ninguno rivalizaba con el suyo. ¿Cuántas noches habría implorado el hombre una visita de Esculapio en sus sueños? ¿Cuántos días había estado allí tendido a la sombra del templo, observando con impotencia la agitación de las supersticiosas aguas?
+
+Una vez más, sin ninguna fanfarria, sin hacer ninguna predicción para complacer al público, Jesús simplemente le dijo al hombre: **"Levántate, toma tu cama y anda"**. De inmediato, aquellos músculos y huesos atrofiados se fortalecieron y pusieron al hombre sobre sus pies por primera vez en décadas. Es posible que el tiempo hubiera cementado su destino en la mente de la comunidad, y que ciertamente hubieran relegado al hombre al sanatorio, por lo que su entrada después a zancadas al templo aquel día debió haber impresionado a todo el mundo.
+
+Y a estas alturas, los líderes del templo estaban comenzando a fijarse en Jesús. No se trataba de un simple rabi advenedizo de un remoto rincón de Galilea.
+
+**Poder sobre la insuficiencia.** A medida que Jesús seguía con su ministerio de sanidades y enseñanza, los milagros aumentaban de tamaño y complejidad, como si él estuviera revelando su poder de manera gradual. Algunos meses más tarde, después que Jesús había estado enseñando a través de la región de Galilea, decidió llevarse a sus discípulos de las multitudes para disfrutar de la soledad de la región montañosa al noreste del mar de Galilea.
+
+Pero su fama se había extendido rápidamente. Mientras enseñaba a su círculo íntimo de discípulos, una multitud comenzaba a reunirse en la ladera montañosa. La gente, miles de personas, habían seguido a su Mesías hasta el desierto y no habían pensado para nada en la comida. Probablemente esperaban que él fuera capaz de dársela. Después de todo, recordaban lo que él les había enseñado en un sermón pronunciado en otra falda montañosa:
+
+> "Por tanto os digo: No os afanéis por vuestra vida, qué habéis de comer o qué habéis de beber; ni por vuestro cuerpo, qué habéis de vestir. ¿No es la vida más que el alimento, y el cuerpo más que el vestido? Mirad las aves del cielo, que no siembran, ni siegan, ni recogen en graneros; y vuestro Padre celestial las alimenta. ¿No sois vosotros de mucho más valor que ellas? ¿Quién de vosotros podrá, por más que se afane, añadir a su estatura un codo? ¿Por qué os afanáis por el vestido? Mirad los lirios del campo, cómo crecen. Ellos no trabajan ni hilan; pero os digo que ni aun Salomón, con toda su gloria, fue vestido como uno de ellos. Si Dios viste así la hierba del campo, que hoy está y mañana es echada en el horno, ¿no hará mucho más por vosotros, hombres de poca fe?
+> 
+> Por tanto, no os afanéis diciendo: ¿Qué comeremos? o ¿Qué beberemos? o ¿Con qué nos cubriremos? Porque los gentiles buscan todas estas cosas, pero vuestro Padre que está en los cielos sabe que tenéis necesidad de todas estas cosas. Mas bien, buscad primeramente el reino de Dios y su justicia, y todas estas cosas os serán añadidas. Así que, no os afanéis por el día de mañana, porque el día de mañana traerá su propio afán. Basta a cada día su propio mal"
+> 
+> *Mateo 6:25-34*
+
+Al final, cinco mil hombres y sus familias se habían reunido en la ladera. Jesús hizo la manga de Felipe, y le preguntó: "¿De dónde compraremos pan para que coman estos?" (Juan 6:5). La pregunta, por supuesto, era el comienzo de una lección. Jesús había escogido a los Doce y los había estado preparando para que asumieran el liderazgo en el nuevo reino. Como un verdadero maestro, estaba empujando poco a poco a sus hombres al frente para permitirles enfrentar los retos del ministerio. Lamentablemente, para aprender hay que fracasar primero.
+
+> Pero decía esto para probarle, porque Jesús sabía lo que iba a hacer. Felipe le respondió:
+> Doscientos denarios de pan no bastan, para que cada uno de ellos reciba un poco.
+> 
+> *Juan 6:6,7*
+
+En todo grupo de líderes hay siempre un pesimista, el que ve cada desafío con una detallada lista de las cosas que le falta, en vez de contar con lo que Dios promete darle. Felipe debía ya a esas alturas que Dios nunca llama a los suyos a realizar algo sin prometerles antes suplir todas sus necesidades. La respuesta correcta a la pregunta de Jesús debió haber sido: "No lo sé todavía, Señor, ¡pero sé que tú pensarás en algo!"
+
+Jesús esperó pacientemente que Felipe contara la gente y calculara el costo del pan. Su calculadora mental empezó a funcionar. Veamos... hay unos cinco mil hombres y algunos de ellos traen sus familias; digamos que son unas ocho mil personas para no discutir. Una hogaza de pan por persona costaría... dos costarían... ¡cielos! Por el calculo que hago, Señor, si tuviéramos el equivalente al salario de ocho meses, ¡tendríamos apenas lo suficiente para darle a cada persona apenas un bocado!
+
+Mientras tanto, Andrés había estado mirando a su alrededor para ver qué comida podía haber, cuando un niño ofreció su bolsa de comida. Probablemente el discípulo pensó que aun mencionarlo sería una tontería, pero, siempre con un cauteloso optimismo dijo: "Aquí hay un muchacho que tiene cinco panes de cebada y dos pescaditos. Pero, ¿qué es esto para tantos?" (Juan 6:9).
+
+Quizás con un guiño y un confiado gesto de asentimiento, Jesús dijo: "Haced recostar a la gente" (Juan 6:10). Los discípulos dividieron a la multitud en grupos y dispusieron un eficiente plan de distribución, mientras Jesús daba gracias al Padre por la provisión de comida; luego comenzaron a partir el pan y a sacar pedazos de pescado... una y otra y otra vez durante varias horas. Jesús multiplicó la humilde ofrenda del niño y pasó la abundancia a una brigada de discípulos.
+
+Cuando no había nadie más que pidiera comida, Jesús dio a sus discípulos otra tarea: "Recoged los pedazos que han quedado, para que no se pierda nada" (Juan 6:12). Cada uno de ellos tomó una canasta de mimbre llamada *kophinos* (normalmente usada para llevar la provisión de comida de una persona en un viaje), y reunieron suficiente sobras que no se habían terminado, como para llenar los estómagos de cada uno de los doce discípulos.
+
+Al final del día, la lección debió estar clara. El tamaño de un desafío nunca debe medirse en términos de lo que nosotros tenemos para ofrecer, porque esto nunca será suficiente. Además, la responsabilidad de proveer es de Dios, no nuestra. A nosotros simplemente se nos llama a entregar lo que tenemos, aunque no sea más que una bolsa con nuestro almuerzo. Al pensar en la enorme necesidad del mundo, la invitación de Dios es sencilla: **Ocúpense ustedes de la suma; yo me encargo de la multiplicación.** La misión que les he dado a cumplir la llevarán a cabo con abundancia.
+
+Al final del día, cada discípulo tenía en las manos suficiente comida sobrante como para un viaje.
+
+**Poder sobre la naturaleza.** Después de esta "señal", la multitud se levantó y comenzaron a hablar de cómo podían deponer al gobierno que tenían y convertir a Jesús en su rey. En vista de que Jesús no estaba de acuerdo con su plan y rechazaba su motivación, mandó a la multitud que se dispersara. El Señor se retiró después rápidamente a una región montañosa. Mientras tanto, sus discípulos se quedaron preparando la barca tal como él se los había ordenado, y se hicieron a la vela hacia Cafarnaúm.
+
+Mientras Jesús disfrutaba de algunas horas de aislamiento, el frenesí de la multitud se fue apagando gradualmente, lo cual le permitió tener un tiempo de descanso y reflexión. Pero en ese periodo, una fuerte tormenta se desató sobre el mar. El comentarista Gerald L. Borchert, en su libro *John 1-11, The New American Commentary*, ha descrito la escena de esta manera: "El mar de Tiberias o de Galilea es una profunda depresión en la brecha del Jordán: el mar está rodeado de colinas, de modo que descienden sobre él frecuentes vientos que agitan frenéticamente sus aguas. Aun hoy la situación sigue siendo la misma. A las embarcaciones a motor se les advierte regularmente que permanezcan ancladas, mientras los vientos azotan las aguas formando blancas capas de espuma".
+
+Los hombres habían estado remando con dificultad contra el viento por más de 4 km cuando Jesús decidió venir en su rescate. Descendió de la montaña hasta la playa, y luego se dirigió directamente al agua caminando sobre su superficie.
+
+Cuando se acercaba a la barca, los hombres no sabían naturalmente qué pensar de la figura que se estaba acercando a ellos.
+
+> Pero cuando ellos vieron que él caminaba sobre el mar, pensaron que era un fantasma y clamaron a gritos; porque todos le vieron y se turbaron. Pero enseguida habló con ellos y les dijo: "¡Tened ánimo! ¡Yo soy! ¡No temáis!". Y subió a ellos en la barca, y se calmó el viento. Ellos estaban sumamente perplejos, pues aún no habían comprendido lo de los panes; mas bien, sus corazones estaban endurecidos.
+> 
+> *Marcos 6:49-52*
+
+Una persona con un corazón "endurecido" en el tiempo y en la cultura de los discípulos no significaba que fuera mala o cruel, sino que su razonamiento y sus emociones se habían vuelto resistentes a los acontecimientos. Hoy pudieramos decir: "Eran unos testarudos". Después de ver a Jesús realizar temprano ese día los sorprendentes milagros junto a la ladera montañosa, los discípulos no habían sido capaces de establecer una relación entre todo lo sucedido durante el día.
+
+Jesús caminó sobre un mar que amenazaba con tragarse a los discípulos. Le dio órdenes a un viento que lanzaba la barca de un lado a otro como si fuera un juguete. Dijo una palabra y la furia de la tormenta cesó de inmediato. ¿Quién, sino Dios, podía controlar el tiempo?
+
+**Poder sobre la tragedia.** Tanto los fariseos como los saduceos creían que cualquier desgracia era resultado del pecado de alguien, aunque se tratara de un niño que viniera a este mundo con una enfermedad nervante, o con un defecto de nacimiento, o con una discapacidad en cuanto a su desarrollo. Cuando Jesús salía del templo de Jerusalén, se encontró con un hombre que había sido ciego desde su nacimiento. Este hombre podía sentir el calor del sol, pero nunca había visto un amanecer. Había escuchado el embate de las olas, pero nunca había visto la espumosa turbulencia de las aguas en la orilla del mar.
+
+Al ver al ciego, uno de los discípulos le preguntó a Jesús: "Rabi, ¿quién pecó, este o sus padres, para que naciera ciego?"
+
+Respondió Jesús:
+
+> —No es que este pecó, ni tampoco sus padres. Al contrario, fue para que las obras de Dios se manifestaran en él. Me es preciso hacer las obras del que me envió, mientras dure el día. La noche viene cuando nadie puede trabajar. Mientras yo esté en el mundo, luz soy del mundo.
+> 
+> Dicho esto, escupió en tierra, hizo lodo con la saliva y con el lodo untó los ojos del ciego. Y le dijo:
+> Ve, lávate en el estanque de Siloé —que significa enviado—.
+> Por tanto fue, se lavó y regresó viendo
+> 
+> *Juan 9:3-7*
+
+Imaginemos la escena. El hombre era muy conocido en su comunidad debido a su cegera. Su mendicidad lo había convertido en una figura popular de los alrededores del templo durante años, tal vez décadas. Los fariseos lo condenaban, los saduceos lo ignoraban, algunas personas que iban a adorar al templo le mostraban compasión, mientras que otros se apretaban la cartera al pasar sigilosamente a su lado. Entonces, un día, este hombre entró al templo dando zancadas, sin su vara y su bolso de mendigo, mientras sus ojos se deleitaban viendo el esplendor de la casa de Dios y saboreando cada detalle. Los adoradores que estaban en el atrio del templo reconocieron el rostro familiar, pero no podían entender lo que estaban viendo. "¿No es este el que se sentaba para mendigar?". Unos decían: "Este es". Y otros: "No. Pero se parece a él". Pero él seguía insistiendo: "Yo soy".
+
+Entonces le decían:
+
+> ¿Cómo te fueron abiertos los ojos?
+> 
+> El respondió:
+> 
+> El hombre que se llama Jesús hizo lodo, me untó los ojos y me dijo: "Ve a Siloé y lávate". Entonces cuando fui y me lavé, recibí la vista.
+> 
+> Y le dijeron:
+> —¿Dónde está él?
+> 
+> El dijo:
+> —No sé.
+> 
+> *Juan 9:10-12*
+
+En este punto de la historia, uno esperaría que estuvieran haciendo planes para tener una gran celebración. Pero los fariseos, al saber que el hombre había sido sanado en día sábado, se pusieron quisquillosos, protestaron y comenzaron a discutir. "Este hombre [Jesús] no es de Dios, porque no guarda el sábado". Pero otros decían: "¿Cómo puede un hombre pecador hacer tales señales?" (Juan 9:16)
+
+Los fariseos, como siempre, no habían sido capaces de ver el asunto en toda su dimensión. Su ceguera sería risible de no haber sido tan trágica y de tanta influencia el ejemplo que daban. En otra ocasión, el Señor les había advertido a quienes le seguían: "Dejadlos. Son ciegos guías de ciegos. Pero si el ciego guía al ciego, ambos caerán en el hoyo" (Mat. 15:14).
+
+Tan pronto como Jesús terminó de corregir la teología de sus discípulos, declaró: "Yo soy la luz del mundo", y luego le dio la vista al hombre. Con este solo acto, Jesús ejerció su poder sobre las discapacidades, el pecado, la teología equivocada, el templo, el sábado y los escépticos; especialmente los fariseos, tan prendados de sí mismos, y que se le oponían.
+
+Jesús tuvo esta oportunidad porque al mundo había venido un niño que no tenía la capacidad de ver. El hombre no era ciego porque él o sus padres habían pecado. Era ciego por haber nacido en un mundo deformado por el pecado, y es por causa de este que todos nosotros sufrimos, en diferentes grados, el flagelo del mal. Pero también Dios ya le había dado a la discapacidad congénita del niño un propósito divino, aún antes de la creación del mundo.
+
+**Poder sobre la muerte.** El mayor enemigo de la vida es también la mayor afrenta al acto creador de Dios. El Señor no hizo nuestros cuerpos para que murieran, ni tampoco fue su intención que se pudrieran en una tumba. Pero, como escribió el apóstol Pablo, "el pecado entró en el mundo por medio de un solo hombre [Adán] y la muerte por medio del pecado, así también la muerte pasó a todos los hombres, por cuanto todos pecaron" (Rom. 5:12). La humanidad, colectivamente, heredó el castigo de la desobediencia de Adán, el cual es la muerte. Pero, individualmente, todos merecemos la muerte porque cada uno de nosotros ha ratificado la decisión de Adán al fiar al pecado de él, el nuestro. Sin embargo, Dios prometió algo maravilloso; Jesús habría de tomar la situación sin salida en la que nos encontrábamos todos como una oportunidad para revelar su maravilla.
+
+Mientras Jesús ministraba en Galilea, un amigo suyo muy querido llamado Lázaro contrajo una enfermedad mortal y se estaba muriendo en su hogar de Betania, una población cercana a Jerusalén en Judea. Las hermana de este hombre, Marta y María, enviaron un mensajero a Jesús para informarle que su amigo estaba muy enfermo, pero Jesús esperó varios días antes de dirigirse allá. Cuando llegó a Betania, Lázaro había estado ya en la tumba durante algunos días. María se quejó amargamente, y le dijo: "Señor, si hubieses estado aquí, mi hermano no habría muerto. Pero ahora también sé que todo lo que pidas a Dios, Dios te lo dará" (Juan 11:21,22). Entonces Jesús le respondió con una osada confianza:  **"Yo soy la resurrección y la vida. El que cree en mi, aunque muera, vivirá. Y todo aquel que vive y cree en mi no morirá para siempre"**  (Juan 11:25,26).
+
+Poco después, se paró frente a la cueva en donde estaba el cuerpo de su amigo, y sin ninguna vacilación ordenó: "Quitad la piedra".
+
+> Marta, la hermana del que había muerto, le dijo:
+> Señor, hiede ya, porque tiene cuatro días.
+> 
+> Jesús le dijo:
+> ¿No te dije que si crees verás la gloria de Dios?
+> 
+> Luego quitaron la piedra, y Jesús alzó los ojos arriba y dijo:
+> Padre, te doy gracias porque me oiste. Yo sabía que siempre me oyes; pero lo dije por causa de la gente que está alrededor, para que crean que tú me has enviado.
+> 
+> Habiendo dicho esto, llamó a gran voz:
+> —Lázaro, ¡ven fuera!
+> 
+> Y el que había estado muerto salió, atados los pies y las manos con vendas y su cara envuelta en un sudario. Jesús les dijo:
+> —Desatadle y dejadle ir.
+> 
+> *Juan 11:39-44*
+
+Qué reunión tan impresionante debió haber sido esa! Mientras Jesús observaba desde cierta distancia cómo se abrazaban los hermanos, llorando de alegría, con toda seguridad él estaba sonriendo. Su silencio era elocuente. Para decirlo con las palabras de un viejo himno, era un goce anticipado de la gloria divina.
+
+Mientras las hermanas de Lázaro y sus amigos celebraban su regreso de los muertos, estuvieron disfrutando de un breve anticipo de la fiesta futura que Jesús prometió darle al mundo. Si bien es cierto que el pecado tiene el poder de matar y destruir, Dios es el creador de la vida. Él puede crear vida de la nada, y también puede restaurar la vida de la muerte. La seguridad que Jesús le dio a Marta es la misma promesa que él le ofrece al mundo.  **"Yo soy la resurrección y la vida. El que cree en mi, aunque muera, vivirá. Y todo aquel que vive y cree en mi no morirá para siempre"**  (Juan 11:25,26)
+
+### LA RAZÓN DE LOS MILAGROS DE JESÚS
+
+Los magos de la antigüedad creaban la ilusión de los milagros para que sus seguidores siguieran viniendo a ellos trayendo dinero. Fingían lo sobrenatural para ponerse en las mentes de los demás como alguien que tenía un acceso especial a una esfera que ejercía dominio sobre el mundo y que determinaba el destino de quienes tenían la esperanza de pasar de aquí al más allá. Traficaban con el temor al desconocido.
+
+Jesús hacia señales milagrosas con un propósito muy diferente. Sus milagros aliviaban el dolor y el temor, y daban a conocer a un Dios que se interesa profundamente por el sufrimiento de las personas, sin cobrarles nada. Jesús realizó muchos más milagros de los que están mencionados en los Evangelios (Juan 20:30), y su única motivación para hacerlos era la compasión.
+
+Al ver nosotros sus milagros como un todo, el sorprendente poder de Jesús debe ser una fuente de consuelo. A él le interesan y quiere remediar los asuntos que nosotros o el mundo pudieran considerar insignificantes. Jesús anhela aliviar nuestras preocupaciones, y ha prometido suplir nuestras necesidades más elementales. Él se ha ensoreado de la enfermedad, de la tragedia, del caos y de la muerte. Su poder no está limitado por el tiempo, la distancia, la superstición, el prejuicio o las fuerzas del mal. Por sus milagros de resurrección, Jesús enseñó que el mal puede ganar algunas escaramuzas en la tierra, pero solo él ejerce un poder eterno. Los fugaces 70 u 80 años que vivimos en estos cuerpos enfermos, y la muerte que vendrá después, son apenas un abrir y cerrar de ojos en comparación con los grandiosos e imperecederos goces que Jesús ha prometido a quienes creen en él.
+
+El amigo más querido que tuvo Jesús en la tierra, el discípulo Juan, escribió al final de su Evangelio:
+
+> ...Jesús hizo muchas otras señales en presencia de sus discípulos, las cuales no están escritas en este libro. Pero estas cosas han sido escritas para que creáis que Jesús es el Cristo, el Hijo de Dios, y para que creyendo tengáis vida en su nombre.
+> 
+> *Juan 20:30,31*
+
+Después de haber leído acerca de estos milagros auténticos que hizo Jesús, usted tiene la oportunidad de responder a aquel que los realizó. Sus milagros han sido escritos para que usted crea que él es, en efecto, el Hijo de Dios.
+
+**¿Lo ha hecho ya? ¿Lo hará? ¿Lo cree?**
