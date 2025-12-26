@@ -436,3 +436,394 @@ El amigo más querido que tuvo Jesús en la tierra, el discípulo Juan, escribi�
 Después de haber leído acerca de estos milagros auténticos que hizo Jesús, usted tiene la oportunidad de responder a aquel que los realizó. Sus milagros han sido escritos para que usted crea que él es, en efecto, el Hijo de Dios.
 
 **¿Lo ha hecho ya? ¿Lo hará? ¿Lo cree?**
+
+# Jesús: La Vida Más Grande De Todas
+## Capítulo Nueve: El Gran Sanador
+
+Jesús, el sanador, había venido a la ciudad. Mientras una multitud de personas se oprimían unas a otras, dándose codazos y empujones, el estruendo de las voces que pronunciaban su nombre ensordeciá a los discípulos. Estos formaron un círculo entrelazando sus brazos alrededor de su maestro, sin lograr hacer retroceder a una muchedumbre de enfermos y discapacitados que tenían la esperanza de captar la atención de él, aunque fuera solo por unos pocos segundos. A estas alturas del ministerio de Jesús, todo el mundo sabía que un toque suyo podía cambiarlo todo. Cientos, quizás miles, habían experimentado el impacto del poder sanador que les recorría el cuerpo, haciendo que enfermedades de todo tipo imaginable desaparecieran de repente y para siempre.
+
+Mientras los discípulos empujaban hacia atrás a la marejada de personas y Jesús avanzaba a duras penas hacia la ciudad, una voz familiar y respetada gritó algo desde la dirección de la sinagoga, lo cual distrajo la atención de la multitud por un instante, pero solo por un instante. El frenesí aumentó de nuevo con renovada urgencia. Luego, otro grito lanzado desde cierta distancia en el camino, hizo que la multitud se apartara como si una cuna gigante e invisible le hubiera despejado la vía a Jesús. Tal era el respeto de la gente por ese líder de la sinagoga.
+
+La muchedumbre hizo silencio cuando el líder cayó sumisamente de rodillas y hundió su rostro en la tierra. "Por favor Señor, mi hija se está muriendo de... algo, no sabemos de qué. Su cuerpo se debilita con cada segundo que pasa, y en cualquier momento podría morir. En realidad, es posible que mientras hablo contigo ya esté muerta. Ven conmigo, por favor, por favor. Si la tocas, ella sanará completamente".
+
+Jesús extendió su brazo, hizo que el hombre se levantara y después de tranquilizarlo hizo una señal a sus discípulos para que siguieran al líder hasta su casa.
+
+Durante el breve contacto, una mujer que estaba al final del gentío decidió aprovechar su única oportunidad. Debilitada por la pérdida de sangre, de un flujo permanente de la matriz que la mantenía sin fuerzas, y habitualmente lanzada a la periferia de la sociedad por tal motivo, tendría pocas posibilidades de acercarse una vez más en su vida a Jesús. Con la atención de todo el mundo concentrada en el afligido líder, la mujer se agachó y se deslizó entre los cuerpos de las demás personas para robarle un toque a Jesús.
+
+Mientras ella estiraba su mano, Jesús se movió y la multitud lo apretó de nuevo, pero un último y desesperado esfuerzo permitió que los dedos de la mujer rozaran el borde de sus vestiduras. Fue en ese momento cuando la mujer lo sintió. Fue una estremecedora descarga de vitalidad. Era una agradable sensación de calor desde el centro de su cuerpo que se irradiaba a sus brazos y piernas, y que hizo resplandecer su rostro. Pero lo más importante de todo era que su cuerpo ya no estaba perdiendo sangre. Por fin estaba curada. Una docena de años de anemia crónica, de médicos desconcertados y de la desaprobación de sus vecinos... ¡habían terminado!
+
+Jesús sintió también el incremento repentino de su poder sanador. Se dio vuelta con sorprendente rapidez, y preguntó: "¿Quién me tocó las vestiduras?". Sus discípulos se miraron unos a otros, y luego miraron a su maestro. "¿Debes estar bromeando, Señor! Con toda esa gente que te está empujando y agarrando, ¿quién no te ha tocado?"
+
+Jesús se quedó inmóvil, viendo a través del enjambre de piernas a una figura temblorosa que estaba sobre el piso. Una a una, cada persona se apartó de la línea visual de Jesús y siguió su mirada, hasta que no quedó nadie en medio de él y la mujer. Con su rostro en tierra, la mujer lo explicó todo. Lo mucho que había sufrido durante tanto tiempo, cómo había tratado en vano de llegar hasta él en medio de la muchedumbre, y cómo sabía más allá de cualquier temor que un toque de él la sanaría.
+
+> "Ten ánimo, hija".
+> 
+> Ella levantó entonces la cabeza para encontrarse con sus ojos, y vio en él una expresión llena de bondad.
+> 
+> "Tu fe te ha salvado".
+
+Después de su encuentro con el poder sanador de Jesús, la enfermedad de la mujer no volvió más.
+
+El desplazamiento por la ciudad no fue rápido, pero finalmente Jesús y sus acompañantes se acercaron a la casa de Jairo, el líder de la sinagoga. Las paredes de la casa reverberaban con los angustiosos gritos de los enlutados, quienes se habían alineado en la amplia habitación y también en la entrada principal que daba al patio. Algunos abrazaban a Jairo quien luchaba por mantener la compostura.
+
+Mientras pasaba por en medio de los dolientes, Jesús les decía para consolarlos: "¿Por qué se agitan y lloran tanto? La niña no está muerta, sino dormida".
+
+Ante esto, algunos mezclaron la risa con las lágrimas. Otros, que no conocían muy bien a la niña, censuraron al rabí. Para la gente de ese tiempo, la muerte era tan común como el nacimiento. Sabían cuándo alguien estaba muerto. La niña había sido debilitada por la fiebre; de verdad parecía que estaba dormida. Pero todo el mundo sabía que las personas en la condición de entumecimiento e inercia de ella no vuelven a despertar.
+
+Jesús miró a Pedro, a Juan y a Jacobo, quienes cortésmente sacaron a todos de la casa, quedándose solamente ellos, Jesús y los padres de la niña. El Señor tomó luego la mano fría y pálida de la niña, y le dijo suavemente: "¡Levántate, ninita!"
+
+Cuando ésta se sacudió y se sentó, sus padres se echaron sobre ella con abrazos y besos, mezclados con lágrimas de gozo, mientras Jesús sonreía. "Denle algo de comer, porque debe tener hambre" (Mat. 9:18-25; Mar. 5:22-43; Luc. 8:40-55)
+
+### SANADORES DE PREDADORES
+
+Espero que a usted no le importe el relato imaginario de esta historia, pero cuando enciendo el televisor y veo la parodia que han hecho algunos de la sanidad divina, a veces tengo que recordarme a mí mismo que ni Jesús ni sus discípulos actuaban así. Los sanadores de "la palabra de fe" expresan con sagacidad, para conseguir dinero, una teología que suena piedadosa, diciendo que son instrumentos del poder y de la gracia de Dios. ¡Qué insulto tan grande! En realidad, lo que ellos hacen es convertir en sus víctimas a quienes se han vuelto vulnerables por el dolor de la enfermedad; han perfeccionado el sutil arte de equilibrar la esperanza con el sentimiento de culpa, con el fin de convertir en dinero el sufrimiento de los demás. No nos equivoquemos: eso no tiene nada que ver con la compasión, sino con el dinero.
+
+Permítanme ser claro desde el comienzo: creo absolutamente y sin reservas en la sanidad divina. Pero esos sanadores no son más que la versión moderna de los farsantes del templo a los que me referí en el capítulo anterior. Más de dos mil años después, sus métodos han cambiado, pero su motivación sigue siendo la misma: el dinero.
+
+Algunas denominaciones cristianas sostienen una teología particular que hace a sus miembros más susceptibles de convertirse en víctimas de la codicia de los sanadores por fe. Las personas de esas denominaciones tienden a ser más expresivas y dramáticas en su creencia y prácticas. Muchos afirman que si alguien no posee una capacidad sobrenatural, llamada a menudo un "don del Espíritu Santo", la persona no puede decir que es cristiana, o no tiene fe suficiente. Aunque no siempre lo dicen, muchos de estos seguidores llegan a creer que si Dios no responde sus fervientes oraciones, es porque no han orado lo suficiente o no se han acercado a él con fe suficiente. O quizás no han vivido como dignos seguidores de Jesucristo, y por eso sus oraciones son ineficaces. Además, muchas personas que estuvieron asociadas antes con estas denominaciones confiesan que su deseo de tener un encuentro con lo sobrenatural era tan intenso, que se convertían en participantes dispuestos a ser parte de una alucinación aprobada y honrada como genuina espiritualidad por los de su misma creencia.
+
+Durante los días que siguieron a la resurrección de Jesucristo, y antes de que se escribiera el último libro del Nuevo Testamento, el Señor dio a algunos creyentes un poder milagroso para curar enfermedades y otros males. Sin embargo, el uso que hicieron de este poder no era como el de los supuestos sanadores de hoy en día.
+
+Para entenderme mejor la verdadera naturaleza de la sanidad divina, tenemos que entender y aceptar dos aspectos importantes de la naturaleza de Dios. En primer lugar, **Dios es todopoderoso**, lo que significa que él puede hacer todo lo que quiere. El Señor hizo este mundo y todo lo que hay en él, y puede hacer los cambios que desee en cualquier momento. Las Escrituras hebreas afirman:
+
+> Porque yo sé que grande es el SEÑOR; nuestro Señor es más que todos los dioses. El SEÑOR ha hecho todo lo que ha querido en los cielos y en la tierra, en los mares y en todos los océanos.
+> 
+> *Salmo 135:5,6*
+
+El rey Nabucodonosor dominaba la mayor parte del mundo conocido como el gobernante supremo del imperio babilónico, y el poder de su posición se le subió rápidamente a la cabeza. Una mañana despertó y se paró sobre la terraza de su palacio desde la cual se veía el esplendor de la capital de su imperio, y dijo: "¿No es esta la gran Babilonia que yo edifiqué como residencia real, con la fuerza de mi poder y para la gloria de mi majestad?" (Dan. 4:30)
+
+Segundos después de su jactancia, Dios le anunció que lo sujetaría a un desorden mental tal, que haría que pensara como una bestia salvaje, en vez de hacerlo como el más importante de los hombres de su tiempo. Cuando terminó su prueba años después, el gran rey Nabucodonosor escribió:
+
+> Yo, Nabucodonosor, alcé mis ojos al cielo: y me fue devuelta la razón. Entonces bendije al Altísimo: alabé y glorifiqué al que vive para siempre. Porque su señorío es eterno, y su reino de generación en generación. Todos los habitantes de la tierra son considerados como nada. Él hace según su voluntad con el ejército del cielo y con los habitantes de la tierra. No hay quien detenga su mano ni quien le diga: "¿Qué haces?".
+> 
+> *Daniel 4:34,35*
+
+Dario, el medo, quien gobernó al imperio medo-persa también reconoció el poder supremo de Dios.
+
+> De parte mía es dada la orden de que en todo el dominio de mi reino tiemblen y teman delante del Dios de Daniel; porque él es el Dios viviente, que permanece por la eternidad. Su reino es un reino que no será destruido, y su dominio durará hasta el fin.
+> 
+> *Daniel 6:26*
+
+Como gobernantes de vastos imperios, ambos hombres entendían el concepto de soberanía, el derecho de un monarca de hacer lo que quisiera sin rendir cuentas a nadie. Esto apunta al segundo aspecto de la naturaleza de Dios que tenemos que entender y aceptar. Por ser todopoderoso, **Dios es absolutamente soberano**. El Señor tiene el derecho de hacer lo que él quiera, con quien él quiera y cuando él quiera. No tiene que rendirle cuentas a nadie.
+
+Los hombres y las mujeres de la antigüedad creían que sus dioses paganos eran tan caprichosos y depravados como los seres humanos, solo que más poderosos. Para sacarles bendiciones a sus dioses, sus devotos debían ofrecerles espléndidos sacrificios o hacer lo máximo para demostrarles su devoción. Creían que si sus dioses eran lo suficientemente impresionados, tendrían buenas cosechas, sus hijos buena salud y sus enemigos fracasarian. Pero el Dios de la Biblia siempre se ha distinguido por ser totalmente distinto de los falsos dioses producto de la imaginación del hombre. Dios no puede ser forzado, engañado, manipulado o sobornado para que haga algo. Él decide libremente actuar (o no) de acuerdo a como él quiere, aunque sus acciones son siempre consecuentes con su carácter santo e inmutable.
+
+Recordemos estas dos verdades fundamentales mientras vemos una sanidad sobrenatural que aparece en el libro de los Hechos.
+
+Al final, Jesús les dio a sus discípulos el privilegio de hacer discípulos y de enseñar a los demás cómo ser cristianos; y durante algún tiempo los discípulos recibieron el poder de sanar, así como él lo hacía. En esos días, Pedro y Juan se dirigían al templo para adorar y enseñar. Al acercarse a una de las puertas, un hombre paralizado de las piernas desde su nacimiento les pidió una limosna.
+
+Entonces Pedro, juntamente con Juan, se fijó en él y le dijo:
+
+> Míranos.
+> 
+> El les prestaba atención, porque esperaba recibir algo de ellos. Pero Pedro le dijo:
+> —No tengo ni plata ni oro, pero lo que tengo te doy. En el nombre de Jesucristo de Nazaret, ¡levántate y anda!
+> 
+> Le tomó de la mano derecha y le levantó. De inmediato fueron fortalecidos sus pies y tobillos, y de un salto se puso de pie y empezó a caminar. Y entró con ellos en el templo, caminando, saltando y alabando a Dios.
+> 
+> *Hechos 3:4-8*
+
+Como es natural, la reacción del hombre sanado fue alabar a Dios, pero también se asió de Pedro y de Juan como si hubieran sido ellos los responsables de su curación. Las personas que estaban en el templo reconocieron al hombre como el que había estado mendigando la mayor parte de su vida, y quisieron saber quién tenía ese poder milagroso. Pedro les aclaró el asunto:
+
+> Pedro, al ver esto, respondió al pueblo:
+> —Hombres de Israel, ¿por qué os maravilláis de esto? ¿Por qué nos miráis a nosotros como si con nuestro poder o piedad hubiésemos hecho andar a este hombre?... Y el nombre de Jesús hizo fuerte, por la fe en su nombre, a este hombre que vosotros veis y conocéis. Y la fe que es despertada por Jesús le ha dado esta completa sanidad en la presencia de todos vosotros.
+> 
+> *Hechos 3:12,16*
+
+Tres observaciones cruciales nos ayudarán a reconocer que se trata de una curación milagrosa hecha por Dios:
+
+· Fue instantánea y permanente.
+· Fue evidente y completa.
+· No fue obra directa ni indirecta de hombres.
+
+Las "curaciones" de los mercachifles de la palabra de fe siempre dejan a la gente con la interrogante de por qué razón esas personas no curan a los parapléjicos, ni a las personas ciegas de nacimiento, ni a las víctimas de la parálisis cerebral. Los sanadores por fe normalmente les dicen a las personas que ellos son apenas instrumentos del poder sanador de Dios, pero su humildad es superficial. Sus palabras dicen una cosa, pero su teatralidad y sus exigencias de dinero muestran a las claras que para recibir sanidad hay que venir a ellos. Curiosamente, no se aparecen en los hospitales para curar a una persona tras otra.
+
+### LAS CINCO LEYES DE LA SANIDAD DIVINA
+
+Aunque los sanadores modernos son fraudulentos, entienda, por favor, que Dios sigue sanando hoy en día a los enfermos. Si bien las curaciones que él hace son a veces dramáticas y con frecuencia inexplicables, rara vez involucran un milagro, es decir, un hecho contrario a las leyes de la naturaleza que solo puede ser explicado como de origen divino. No obstante, Dios sí interviene en favor de la gente y muchas veces en conjunción con las oraciones de otras personas.
+
+Para entenderme mejor hoy en día la naturaleza de la sanidad divina, consideremos las siguientes cinco leyes que se encuentran en la Biblia:
+
+**Ley No. 1: Hay dos categorías de pecado: el original y el personal.** Los teólogos llaman "pecado original" a la desobediencia de Adán, porque fue el primer caso de pecado. Toda la pecaminosidad de la humanidad y de todos los tiempos, nace con esta trágica elección (Gen. 3:17-19). Cada uno de nosotros ha heredado una naturaleza enferma inclinada al mal, tanto así que no podemos resistir la tentación de pecar. En este sentido, el pecado es universal. Pero cuando, individualmente, elegimos desobedecer, el pecado se ha convertido en personal.
+
+**Ley No. 2: El pecado original trajo el sufrimiento, la enfermedad y muerte.** Como resultado del pecado, la creación de Dios se convirtió en una versión distorsionada de lo que originalmente él había hecho perfecto. El Señor no creó el cuerpo humano con el propósito de que sufriera y se deteriorara. Creó al mundo para que este fuera un ambiente para la armonía y el cultivo de nuestros cuerpos, y nos creó con el propósito de que tuviéramos compañerismo íntimo con él. Pero, debido al pecado, hay algo que anda mal con todo y con todos, incluyendo nuestros cuerpos, que se volvieron susceptibles a la enfermedad y a la muerte.
+
+**Ley No. 3: A veces, la enfermedad y la muerte son el resultado directo del pecado personal.** Es obvio que el uso de las drogas destruye al cuerpo, y que el sexo extramarital puede exponernos a las enfermedades, pero algunos padecimientos son permitidos por Dios con el propósito de corregirnos (lCor 11:27-30). El Señor puede permitir, como un compasivo acto de disciplina severa, que el padecimiento físico mantenga alejada a una persona de una conducta destructiva, tanto para consigo misma como para con los demás.
+
+**Ley No. 4: A veces, la enfermedad y la muerte no tienen nada que ver en absoluto con el pecado.** Jesús dijo en Juan 9:1-3 acerca del hombre que había nacido ciego: "No es que este pecó, ni tampoco sus padres. Al contrario, fue para que las obras de Dios se manifestaran en él". La cegera del hombre era el resultado de haber nacido en un mundo deformado por el pecado. Sin embargo, Dios le dio a su padecimiento un propósito divino aún antes de crear al universo con su palabra.
+
+Nosotros somos criaturas diminutas con una vida limitada que nos movemos en un vasto universo medido en eones y años luz. Por tanto, es fácil olvidar que lo que nos sucede a nosotros no lo es todo. Somos miopes e impacientes. Queremos que nuestro software funcione de inmediato; queremos nuestro café recién hecho, caliente y rápido; y queremos respuestas a nuestras preguntas cosmicas, ya.
+
+Pero Dios no se rige por nuestro cronograma. Él tiene un plan que llevará a cabo de manera perfecta, para el mayor bien de todos y para su máxima gloria. Y aunque pueda parecer desconcertante y misterioso, todo acto de crueldad sin razón, Dios lo toma para sus divinos propósitos.
+
+**Ley No. 5: No es la voluntad de Dios que toda enfermedad sea curada.** Este es, probablemente, el principio más difícil de aceptar, porque es contrario a nuestra idea de lo que debe hacer un Dios bueno. El principio es, sin duda, un rechazo a la teología de la prosperidad física y material, que se nutre de los aplausos y del dinero que produce. Según los predicadores de la palabra de fe, Dios quiere que usted tenga salud, riquezas y una dicha ajena a toda tristeza. Según ellos, usted debe tener por seguro esto: el causante de que usted no disfrute de salud y riquezas, es usted mismo, porque no tiene suficiente fe, y por que hay demasiado pecado en su vida.
+
+En el tiempo que murió Pablo, su pluma había producido la mayor parte de los escritos del Nuevo Testamento, gracias a la comunicación de la verdad de Dios por parte del Espíritu Santo al Apóstol. Además, Pablo fue el primer responsable de la extensión del cristianismo a través del imperio romano, y de la estabilidad de las iglesias que había en él. La verdad es que si hubo alguien que tuviera fe suficiente y la gracia del Señor para recibir sanidad divina, ese fue Pablo. Sin embargo, este hombre batalló con la enfermedad durante la mayor parte de sus años en el ministerio. Al ser atacado particularmente por un padecimiento físico, él escribió:
+
+> Y para que no me enaltezca sobremanera por la grandeza de las revelaciones, me ha sido dado un aguijón en la carne, un mensajero de Satanás, que me abofetee para que no me enaltezca. En cuanto a esto, tres veces he rogado al Señor que lo quite de mí; y me ha dicho: "Bástame mi gracia, porque mi poder se perfecciona en tu debilidad". Por tanto, de buena gana me gloriaré más bien en mis debilidades, para que habite en mí el poder de Cristo. Por eso me complazco en las debilidades, afrentas, necesidades, persecuciones y angustias por la causa de Cristo; porque cuando soy débil, entonces soy fuerte.
+> 
+> *2 Corintios 12:7-10*
+
+Alfred Plummer, un erudito del Nuevo Testamento, dice de este aguijón: "Es una metáfora muy dramática de un intenso sufrimiento físico". El obispo Lightfoot describió a la expresión *un aguijón en la carne* como "una estaca metida en la carne". Por su parte, William Barclay en su libro *The Letters to the Corinthians* escribe:
+
+> Lo más probable es que Pablo sufriera ataques crónicos recurrentes de cierta fiebre virulenta que se paseaba por la costa oriental del mar Mediterráneo. Los vecinos de esos lugares, cuando deseaban hacerle daño a un enemigo, les pedían a sus dioses que ese enemigo "ardiera de fiebre". Una persona que la sufrió, describe al dolor de cabeza que la acompañaba como "una barra de hierro que atravesaba la frente". Otro autor habla de la fiebre como el "difícil e incómodo dolor en las sienes, como de una cuna imaginaria introducida en medio de ambas quijadas", y dice que cuando la cosa se volvía aguda, "se llegaba al límite de la resistencia humana".
+
+Nadie puede decir con certeza en qué consistía la enfermedad de Pablo. Lo único que sabemos es que era muy dolorosa... tanto que oró menos de tres veces para que Dios lo sanara. Pero, a pesar de su íntima relación con Dios, y de las grandes cosas que había hecho en el ministerio, Dios, en su sabiduría inmensurable, consideró que Pablo estaría mejor con "el aguijón" que sin él. ¿Quién podría discutirlo? Pablo fue, sin duda, un mejor predicador, un maestro más perceptivo y un escritor más compasivo gracias a sus continuos padecimientos.
+
+Cuando leo el Nuevo Testamento, encuentro que todas las sanidades milagrosas eran inmediatas, totales, permanentes y gratuitas. Jesús alabó con frecuencia la decisión de las personas de creer en él, y nunca dijo que la profunda espiritualidad o la sinceridad de la fe de ellas tuvieran algo que ver con su decisión de sanarlas.
+
+### LA VERDADERA SANIDAD POR FE
+
+Santiago, uno de los escritores del Nuevo Testamento, explica cuál debe ser la respuesta de los creyentes a la enfermedad de una persona. Santiago nunca tuvo la intención de que esta fuera la única respuesta, ni tampoco el sólo y único requisito para que Dios curara a alguien. Él escribió su libro para exhortar a los cristianos a darle una aplicación práctica a las verdades espirituales que estaban aprendiendo. Entre estas estaba el hacer más que simplemente esperar que los enfermos se recuperen. Pongan mucha atención a las siguientes palabras:
+
+> ¿Está afligido alguno entre vosotros? ¡Que ore! ¿Está alguno alegre? ¡Que cante salmos! ¿Está enfermo alguno de vosotros? Que llame a los ancianos de la iglesia y que oren por él, ungiéndole con aceite en el nombre del Señor. Y la oración de fe dará salud al enfermo, y el Señor lo levantará. Y si ha cometido pecados, le serán perdonados. Por tanto, confesaos unos a otros vuestros pecados, y orad unos por otros de manera que seáis sanados. La ferviente oración del justo, obrando eficazmente, puede mucho.
+> 
+> *Santiago 5:13-16*
+
+La palabra griega traducida como "afligido" es *kakopatheo*, un término con un amplio significado que implica "sufrir angustia", que puede englobar la angustia física, mental, emocional, financiera, relacional e incluso espiritual. Santiago recetó la oración como la primera respuesta a cualquier clase de enfermedad. Sin embargo, no especifica el contenido de la oración, ni tampoco promete liberación de la enfermedad como resultado de tal oración. En realidad, las mejores oraciones son las que, a menudo, se hacen después de haber agotado todos nuestros esfuerzos por la sanidad.
+
+Poco después de saber que el cáncer había vuelto a su cuerpo, el ex Secretario de Prensa de la Casa Blanca, Tony Snow, escribió un artículo para la revista *Christianity Today* (Cristianismo hoy) titulado: *Cancer's Unexpected Blessings* ("Las inesperadas bendiciones del cáncer"). En ese maravilloso artículo, Snow dice:
+
+> Imagine que usted está en la cama de un hospital. La niebla mental que produce la anestesia ha comenzado a desaparecer. Un médico está parado junto a sus pies; y un ser amado, a su lado, le sostiene la mano. "Es un cáncer", le dice el galeno.
+> 
+> La reacción natural es volverse a Dios y pedirle que actúe como un Santa Claus cósmico. "Dios amado, haz que todo esto desaparezca. Hazlo todo más sencillo". Pero otra voz le susurra: "Has sido llamado". Su problema lo ha acercado más a Dios, más a los seres que ama, más a los asuntos importantes, y ha vuelto insignificantes las preocupaciones banales que ocupan nuestro "tiempo normal"
+> 
+> Pero hay otra clase de respuesta, aunque normalmente de corta duración: un inexplicable estremecimiento de emoción, como si el clarificador momento de la tragedia hubiera barrido con todo lo trivial y de pacotilla, y puesto frente a nosotros el desafío de las preguntas importantes.
+
+Aunque es posible que la voluntad de Dios sea no curar toda enfermedad, él, no obstante, se preocupa intensamente por el sufrimiento de todos los seres humanos; y tanto es así que envió a su propio Hijo para que soportara el sufrimiento más grande con y por nosotros. Santiago bosquejó un práctico proceso de tres pasos para dar consuelo; y si Dios quería, muy posiblemente sanar a las personas que padecían sufrimientos físicos.
+
+**Paso No. 1: Llamar a los ancianos de la iglesia.** "¿Está enfermo alguno de vosotros? Que llame a los ancianos de la iglesia..." (Stg. 5:14).
+
+A diferencia de la otra palabra, *kakopatheo*, la palabra griega traducida como "enfermo", es *astheneo*, que significa "estar sin fuerzas, estar debilitado, débil de cuerpo". Se refiere a alguien que ha sido debilitado por una enfermedad física. A esta persona se le anima a avisar a los líderes de su iglesia. Es posible que el sufrimiento no sea aliviado ni quitado rápidamente, pero nadie debe sufrir solo.
+
+**Paso No. 2: Los ancianos deben responder proveyendo ayuda médica.** "... y oren por él, ungiéndole con aceite en el nombre del Señor" (Stg. 5:14).
+
+A riesgo de parecer pedante, tengo que señalar un matiz en el griego que es muy importante, y que frecuentemente es ignorado. El verbo principal en este mandato es "orar", mientras que "ungir" es un participio secundario. La traducción de este orden de los verbos debería ser: "Tras haberle ungido con aceite en el nombre del Señor, deben orar por él". Pero la mayoría de las versiones prefieren presentar a los verbos como acciones simultáneas: "Deben orar por el, mientras lo ungen con aceite". En cualquier caso, el punto es el mismo. Ni la oración ni el ungimiento deben pasarse por alto.
+
+Pero, igualmente importante, ¿qué quiere decir Santiago con "ungir con aceite?". Algunas religiones creen que significa un tipo poderoso. Por eso llevan frasquitos de aceite cuando visitan a los enfermos, y derraman o salpican aceite sobre la persona. La práctica de la extremaunción tiene sus raíces en este pasaje específico, aunque se usa en aquellos que han muerto o están al borde de la muerte.
+
+El idioma griego tiene dos palabras que se aplican al uso común del aceite en el mundo antiguo: *aleipho* y *chiro*. Este último se refiere generalmente al ungimiento ceremonial utilizado para señalar la bendición especial de Dios sobre alguien. Por ejemplo, la palabra Cristo, que significa "ungido", se origina de *chiro*. Santiago pudo haber escogido esta palabra, pero prefirió utilizar *aleipho*. Este término particular tiene que ver con el uso pragmático y terapéutico del aceite, tales como frotar o masajear con él con fines medicinales. Al aceite de oliva se le añadían, en la antigüedad, algunas hierbas y extractos vegetales, y la mezcla era aplicada al cuerpo para que sirvieran de ayuda en una serie de enfermedades. Esta era la mejor medicina con la que se contaba en el siglo primero. Decir que los ancianos debían frotar el cuerpo con aceite, era decir que debían ayudar a los que estaban físicamente enfermos a recibir atención médica. Hoy, al aplicar estas instrucciones, los ancianos deben asegurarse de que la persona enferma reciba la mejor ayuda médica de que se disponga.
+
+El punto de Santiago es simple y evidente. No sustituyan la ayuda médica con la oración. El seguir el consejo de un médico, usar correctamente las medicinas y aplicar bien el tratamiento médico, no significa que a la persona le falte fe en Dios. Él es quien le dio el conocimiento médico a la humanidad como un acto de gracia. Dios ha dado a algunos hombres y a algunas mujeres una mayor capacidad para comprender y aplicar ese conocimiento. Pero, a pesar de que ha llamado a hombres y a mujeres para que sean los medios de la sanidad que él da, **Dios es el único sanador**.
+
+**Paso No. 3: Someter la enfermedad a la voluntad de Dios en oración.** "... y que oren por él" (Stg. 5:14).
+
+La acción de atender a los enfermos físicamente, debe incluir la oración. La traducción literal de Santiago 5:15, dice "Y la oración de fe salvará al extenuado". Exprese su deseo sincero por la total recuperación de la persona que sufre. Pídale al Señor que experimente menos dolor y que le evite los efectos enervantes del temor. Pídale que la enfermedad le traiga beneficios sorprendentes e insospechados. Pero someta sus peticiones al soberano cuidado de Dios, con la total confianza de que él es impecablemente bondadoso e indefectiblemente justo. Como el mismo Jesús dijo en su oración en el jardín de Getsemaní: "No se haga mi voluntad, sino la tuya" (Luc. 22:42).
+
+### CINCO PRINCIPIOS EN CUANTO A LA SANIDAD DIVINA
+
+El desconcierto y la angustia del sufrimiento físico pueden ser inmensos y hacer que, incluso la persona más equilibrada, busque alivio en los lugares más extraños y en las fuentes menos confiables. Por eso la curación por fe constituye un negocio tan bueno. Hay cinco principios sencillos, cada uno de los cuales está acompañado por una exhortación, que nos ayudarán a mantenernos enfocados en la verdadera fuente de la sanidad, y a no hacer caso a los mercachifles de una falsa esperanza.
+
+1. **La voluntad de Dios es suprema; respétela.** Algunas veces es difícil entender la voluntad de Dios desde nuestra limitada perspectiva terrenal. Y es aún más difícil aceptar cuando implica un gran sufrimiento. Cuando oremos, debemos recordar que Dios es justo en todos sus caminos, y para quienes somos suyos, todo sufrimiento se convertirá en el medio mediante el cual él dará bendición más tarde (Rom. 8:26-28; 1 Ped. 5:10).
+
+2. **La ayuda médica es necesaria; búsquela.** La oración nunca tuvo el propósito de sustituir el cuidado médico. La gracia de Dios para todo el mundo, no solo para quienes han respondido a su llamado, incluye el regalo de la ciencia médica. De hecho, Dios puede preferir responder nuestras oraciones sanando por medio de las manos de un médico no creyente (Luc. 10:33-35).
+
+3. **La oración intercesora es un mandamiento de Dios; obedézcalo.** Cuando hagamos todo lo que está dentro de nuestro poder para sanar a otros, hagámoslo bajo la providencia de Dios, quien nos invita a entregarle todos los asuntos a él, porque el Señor ama profundamente a quienes sufren (Fil. 4:6). Podemos confiar en que él hará lo correcto (Mat. 7:7-11).
+
+4. **La confesión de los pecados es saludable; practíquela.** No toda enfermedad tiene que ver con el pecado del que la sufre; sin embargo, no siempre podemos descartarlo. La confesión y el arrepentimiento de los pecados, incluso los que consideramos insignificantes, nunca están de más. Incluso, aunque la enfermedad no tenga nada que ver con el pecado, la confesión y el arrepentimiento nos ayudan a mantener nuestra relación con Dios libre de asuntos que nos distraigan de él (Stg. 5:16; 1 Jn. 1:8, 9).
+
+5. **Toda curación proviene de Dios; celébrelo.** Cada vez que alguien recupera la salud, ya sea por los conocimientos de un profesional de la medicina, o por la intervención directa y sobrenatural de Dios, es el Señor quien merece el crédito. Nunca nos equivocamos cuando alabamos a Dios y cuando le damos las gracias por la sanidad y la salud continua (Stg. 1:17; 1 Jn. 5:14, 15).
+
+Una vez más: hay que entender la voluntad divina en el contexto de la naturaleza de Dios. Él es todopoderoso, y por eso puede curar cualquier enfermedad. Y también es soberano, lo que significa que actuará en el mejor interés de cada persona de acuerdo con su bondad inagotable aunque, en nuestro concepto, no parezca muy buena en el momento.
+
+### LA SANIDAD MÁS GRANDE
+
+Volvamos a un episodio en la vida de Jesús (Juan 11:18-26) para ver de nuevo algo que él dijo. Cuando un mensajero vino a informarle que su amigo Lázaro se estaba muriendo, el Señor deliberadamente se demoró en ir allá. Después de dos días fue a Betania, sabiendo que Lázaro había muerto.
+
+Al llegar, encontró que Marta lo estaba esperando en las afueras del pueblo. "Señor, si hubieses estado aquí, mi hermano no habría muerto", le dijo.
+
+Marta y su hermana, habían pedido fervientemente la ayuda de Jesús, en quien ellas confiaban totalmente. A pesar de que su hermano yacía frío en una tumba, Marta descansaba en la dulce confianza de que cualquier cosa que hiciera Jesús sería lo correcto. Y él decidió honrar su petición a su manera y en su tiempo. "Tu hermano resucitará", le dijo.
+
+Marta recordó esta enseñanza que había escuchado antes de él, y respondió: "Yo sé que resucitará en la resurrección en el día final".
+
+Jesús le aclaró a Marta su enseñanza. **"Yo soy la resurrección y la vida. El que cree en mi, aunque muera, vivirá. Y todo aquel que vive y cree en mi no morirá para siempre"**. Luego le hizo una pregunta más trascendental, una pregunta que tiene que ver con un asunto mucho más importante que el alivio temporal de los dolores de la enfermedad: "¿Crees esto?".
+
+Marta entendió el pleno significado de la pregunta, y declaró su fe sin ambigüedades. Al hacerlo, Jesús le dio una señal de su máxima promesa realizando la sanidad más grande, al revertir la muerte y la descomposición del cuerpo de Lázaro.
+
+Jesús, el sanador, no vino para prolongar nuestra existencia terrenal y ni siquiera a hacerla más agradable, al menos no agradable de la manera cómoda que nosotros preferiríamos. Él vino para darnos sanidad de la enfermedad que amenaza a la vida eterna, y para darnos gozo, el cual sobrepasa por eones y años luz la simple felicidad.
+
+El Señor sanó a Lázaro de la muerte y de la descomposición, pero la sanidad de ese tipo es sólo temporal. Lázaro volvió a morir, al final. Aunque recibamos la sanidad completa de cualquier problema de salud, tendremos que enfrentar la muerte a la larga, porque ella es una consecuencia inevitable del pecado. Sin embargo, Jesús el sanador no permitirá que la muerte tenga la victoria final. Gracias a él, podemos esperar la sanidad final que es permanente.
+
+Cuando Tony Snow, en su libro *Cancer's Unexpected Blessings* ("Las inesperadas bendiciones del cáncer") reflexionó sobre su problema con el cáncer de colon, dijo lo siguiente:
+
+> La mayoría de nosotros hemos visto a amigos partir a los brazos del Señor, no con resignación, sino con paz y esperanza. Al hacerlo, ellos nos han enseñado no cómo morir, sino cómo vivir. Han imitado a Cristo al transmitirnos el poder y la autoridad del amor.
+> 
+> Hace algunos años, me encontraba al lado de la cama de mi mejor amigo, mientras observaba cómo lo destruía el cáncer. En su mesa de cuarto tenía una Biblia desgastada, y una edición del 28 de Libro de la Oración Común. Un pesar angustioso se había apoderado de sus familiares, de muchos de sus viejos amigos y de, por lo menos, un sacerdote. Era un hombre muy bueno y humilde, que se disculpaba con dolor cuando pensaba que estaba haciendo sentir incómodo a quien lo estaba visitando. Mantuvo, literalmente, su ecuanimidad y su buen humor hasta su último momento consciente. "Voy a tratar de derrotar este cáncer", me dijo varias veces antes de su muerte. "Pero si no lo logro, te veré en el otro lado".
+> 
+> Su don fue recordar a todos los que le rodeaban que, aunque Dios no nos promete tenernos vivos el día de mañana, sí nos promete una eternidad llena de vida y de un amor que no somos capaces de comprender plenamente, y que una persona puede, en la agonía de su enfermedad, señalar a los demás verdades imperecederas que nos ayudarán a capear las futuras tormentas de la vida.
+
+A través de esas pruebas, Dios nos invita a elegir: **¿Creemos, o no creemos?**
+
+# Capítulo Diez: Permanecer en Cristo
+
+Por muchos meses se habían estado formando nubes de tormenta sobre Jerusalén. Jesús había concentrado su atención en Galilea durante la primera parte de su ministerio, pero viajaba con regularidad a la Ciudad Santa en Judea para celebrar la más de media docena de fiestas religiosas judías que se tenían a lo largo del año. Y cada visita que hacía más intensa se volvía la tensión entre Jesús y las autoridades religiosas; los saduceos, que tenían el control del templo, y los fariseos, que controlaban a la gente.
+
+Los discípulos podían sentir cómo aumentaba el peligro. Por eso, cuando Jesús anunció que irían a visitar a Marta y María en la aldea de Betania, que quedaba a unos 3 kilómetros de Jerusalén, Tomás se volvió hacia los otros y dijo, con resignación: "Vamos también nosotros, para que muramos con él" (Juan 11:16). El temor de los discípulos no era infundado ya que en su última visita a la ciudad una furiosa multitud quiso apedrear a su maestro.
+
+Después de que Jesús resucitó de los muertos a Lázaro, aumentaron sus seguidores. Sin embargo, varios amigos de los fariseos vieron su creciente popularidad como un peligro, y fueron corriendo a toda prisa a Jerusalén con la noticia.
+
+> Pero algunos de ellos fueron a los fariseos y les dijeron lo que Jesús había hecho. Entonces los principales sacerdotes y los fariseos reunieron al Sanedrín y decían:
+> —¿Qué hacemos? Pues este hombre hace muchas señales. Si le dejamos seguir así, todos creerán en él; y vendrán los romanos y destruirán nuestro lugar y nuestra nación.
+> 
+> Entonces uno de ellos, Caifás, que era sumo sacerdote en aquel año, les dijo:
+> Vosotros no sabéis nada; ni consideráis que os conviene que un solo hombre muera por el pueblo, y no que perezca toda la nación.
+> 
+> *Juan 11:46-50*
+
+Así comenzó el plan para matar a Jesús.
+
+Los líderes religiosos tendrían que actuar con astucia. No se atrevían a apresarlo en público por temor a que la multitud cada vez mayor de sus seguidores se sublevaran y se volvieran contra ellos. Y nada como una insurrección desataría con tanta rapidez la ira de los romanos. Cuando Marco Licinio Craso derrotó al fugado esclavo Espartaco y sus seis mil rebeldes, los crucificó a intervalos regulares a lo largo de la vía que conducía al pueblo de Espartaco. El general nunca dio la orden de que quitaran los cuerpos de las cruces, ni tampoco de que estas fueran retiradas. Por tanto, durante años, y quizás décadas, estos macabros recordatorios sirvieron de advertencia a los posibles revolucionarios. Uno de ellos podría haber sido usted.
+
+### SALVE, REY JESÚS!
+
+Imaginemos la gran consternación de las autoridades religiosas cuando Jesús vino a Jerusalén para celebrar la fiesta de la Pascua. El escogió deliberadamente llegar montado sobre un humilde pollino, no solo como un reconocido símbolo de la paz, sino además como una evidente referencia a la profecía mesiánica de Zacarías:
+
+> Alegráte mucho, oh hija de Sion! Da voces de júbilo, oh hija de Jerusalén! He aquí, tu rey viene a ti, justo y victorioso, humilde y montado sobre un asno, sobre un borriquillo, hijo de asna. Destruiré los carros de Efraín y los caballos de Jerusalén. También serán destruidos los arcos de guerra, y él hablará de paz a las naciones. Su dominio será de mar a mar y desde el Río hasta los confines de la tierra.
+> 
+> *Zacarías 9:9,10*
+
+Los gobernantes religiosos entendían claramente este mensaje, el cual decía, en realidad: Vengo en paz como vuestro Mesías, el sacerdote-rey prometido a Israel. Sometan su autoridad a mi persona, y comencemos a edificar el nuevo reino.
+
+Miles de seguidores de Jesús respondieron a su gesto dándole una bienvenida reservada a la realeza, alineándose a lo largo de la vía que conducía a la ciudad, aclamando su nombre y cubriendo su camino con sus mantos y con ramas de palmeras, mientras gritaban:  **"¡Hosanna!"**  , que significa: "¡Sálvanos ya!"
+
+Todo el mundo conocía la tradición. Por cientos de años, los judíos habían recitado el Salmo 118 esperando este día:
+
+> La piedra que desecharon los edificadores ha venido a ser la principal del ángulo. De parte del SEÑOR es esto; es una maravilla a nuestros ojos. Éste es el día que hizo el SEÑOR; nos gozaremos y nos alegraremos en él. Oh SEÑOR, sálvanos, por favor! Oh SEÑOR, haznos prosperar! Bendito el que viene en el nombre del SEÑOR! Desde la casa del SEÑOR os bendecimos. El SEÑOR es Dios y nos ha resplandecido. Atad ramas festivas junto a los cuernos del altar.
+> 
+> *Salmo 118:22-27*
+
+En ocasiones anteriores, Jesús había adorado en el templo y enseñado a quienes estuvieran dispuestos a escucharle. Cuando era desafiado por la elite religiosa, él respondía, pero no a costa de su misión de enseñar y predicar. Enseñaba contra la corrupción que veía allí, e incluso desbarató más de una vez el negocio que algunos tenían en el sitio. Pero esta vez fue diferente. Esta vez vino para reclamar su autoridad sobre el templo y para enfrentar la delincuencia organizada de Anás, el verdadero poder detrás de la posición de sumo sacerdote.
+
+En un momento de la tumultuosa semana que siguió a su llegada, Jesús se sentó para enseñar en el templo. Cuando un nutrido grupo de seguidores y de conspiradores rodeó al atrevido rabí para oír una parábola, éste captó la atención de ellos con sus primeras palabras: "Había un hombre, dueño de un campo, quien plantó una viña. La rodeó con una cerca, cavó en ella un lagar, edificó una torre..." (Mat. 21:33).
+
+La mayoría de las imágenes que había en las enseñanzas de Jesús eran muy conocidas por los judíos del primer siglo: pastor y oveja, sembrador y semilla, viña y odres, amos y siervos. Pero ninguna metáfora tocaba tanto el alma de un hebreo como la imagen del viñador y su viña. Puesto que la imagen ilustraba con mucha intensidad el cuidado de Dios por la nación de Israel, la parábola del profeta Isaías era una punzante amonestación que siguió siendo una fuente de pesar para los hebreos durante muchas generaciones, después de haber sido avasallados cruelmente por los babilonios:
+
+> Cantaré a mi amigo la canción de mi amado acerca de su viña. Mi amigo tenía una viña en una fertil ladera. La había cercado y despedregado. Luego había plantado en ella vides escogidas. Había edificado en ella una torre y también había labrado un lagar. Esperaba que diese uvas buenas, pero dio uvas silvestres.
+> 
+> "Ahora pues, oh habitantes de Jerusalén y hombres de Juda, juzgad entre mi y mi viña. ¿Qué más se podía haber hecho por mi viña que yo no haya hecho en ella? ¿Por qué, pues, esperando yo que diese uvas buenas, ha dado uvas silvestres? Ahora pues, os daré a conocer lo que yo haré a mi viña: Quitaré su cerco, y será consumida; romperé su vallado, y será pisoteada. La convertiré en una desolación; no será podada ni cultivada. Crecerán espinos y cardos, y mandaré a las nubes que no derramen lluvias sobre ella".
+> 
+> Ciertamente la viña del SEÑOR de los Ejércitos es la casa de Israel, y los hombres de Juda son su placentero vergel. Esperaba el derecho, y he aquí la vileza; esperaba la justicia, y he aquí el clamor.
+> 
+> *Isaías 5:1-7*
+
+Antes de que Jesús terminara la primera frase de la parábola, sus seguidores y los conspiradores estaban absortos por igual.
+
+> Había un hombre, dueño de un campo, quien plantó una viña. La rodeó con una cerca, cavó en ella un lagar, edificó una torre, la arrendó a unos labradores y se fue lejos. Pero cuando se acercó el tiempo de la cosecha envió sus siervos a los labradores para recibir sus frutos. Y los labradores, tomando a sus siervos, a uno hirieron, a otro mataron y a otro apedrearon. El envió de nuevo otros siervos, en mayor número que los primeros, y les hicieron lo mismo.
+> 
+> Por último, les envió a su hijo, diciendo: 'Tendrán respeto a mi hijo'. Pero al ver al hijo, los labradores dijeron entre sí: 'Éste es el heredero. Venid, matemosle y tomemos posesión de su herencia'. Le prendieron, le echaron fuera de la viña y le mataron. Ahora bien, cuando venga el señor de la viña, ¿qué hará a aquellos labradores?
+> 
+> *Mateo 21:33-40*
+
+Los oficiales del sumo sacerdote y los fariseos comenzaron a retorcerse cuando alguien de la multitud respondió: "A los malvados los destruirán sin misericordia, y arrendará su viña a otros labradores, quienes le pagarán el fruto a su tiempo" (Mat. 21:41).
+
+### LA VID VERDADERA
+
+Cada año, el pueblo hebreo celebraba la Pascua, una fiesta que duraba toda una semana; se trataba de la celebración de la fiesta de la Pascua y de la fiesta de los Panes sin levadura. Por casi dos mil años habían hecho una pausa anual para conmemorar la liberación de Egipto de sus antepasados y de haberlos llevado Dios a la tierra prometida.
+
+Jesús reunió a sus discípulos en una habitación especialmente preparada para lo que él sabía que serían sus últimas horas con ellos. En esta última cena para celebrar la fidelidad de Dios para con Israel, Jesús iba a hacer un resumen de su enseñanza, a preparar a sus discípulos para que llevaran adelante el ministerio del Señor y dar un nuevo significado al familiar rito de la celebración de la Pascua.
+
+A medida que avanzaba el ministerio de Jesús, sus discípulos maduraban y su mensaje cambiaba consecuentemente. Al público general llamó diciendo: **"Vengan a mí"**. A quienes vinieron, les hizo esta invitación: **"Síganme"**. Y a los que lo siguieron, los exhortó diciendo: **"Permanezcan en mí"**. El Señor dio su mensaje desde el aposento alto para unos creyentes que lo habían aceptado como su Mesías y la expresión concreta de Dios, aunque transcurriría algún tiempo antes que entendieran por completo las implicaciones de esta verdad.
+
+Después de reiterarles el anuncio que les había hecho con anterioridad, de que sería azotado y muerto por los líderes religiosos de Jerusalén, Jesús volvió a un tema al cual ya se había referido para ilustrar de qué manera habría de seguir su relación con los discípulos: **"Yo soy la vid verdadera, y mi Padre es el labrador"** (Juan 15:1).
+
+Compare esta parábola de la viña con las otras, y verá una dramática reconstrucción de las imágenes. En esta versión Jesús toma el lugar de Israel, alegando ser la vid autentica y vigorosa que la nación no había logrado ser. Él era el rey del reino de Dios.
+
+El propósito de la parábola de Jesús era enseñar a los creyentes cómo vivir como ciudadanos del nuevo reino al aplicar el concepto que él llamó **permanecer**. La razón por la que Dios había plantado la viña en la tierra prometida, la razón por la que cualquier persona planta una viña, era para que diera fruto. Pero, lamentablemente, Israel había fracasado. De la misma manera, muchos cristianos no son capaces de permanecer en Dios y, por consiguiente, no pueden dar ningún fruto.
+
+El pastor Andrew Murray, en su libro *Abide in Christ: Thoughts on the Blessed Life of Fellowship with the Son of God*, se lamentó diciendo:
+
+> Metemo que hay muchos sinceros seguidores de Jesus para quienes el significado [de permanecer] está muy encubierto. Aunque han confiado en que su Salvador les ha perdonado y les ayuda, y tratan hasta cierto grado de obedecerle, no han entendido bien a qué intimidad de unión, a qué intimidad de compañerismo les invitó el Señor cuando les dijo: "Permaneced en mí". Esto no solo es una indebible perdida para ellos, sino que también la iglesia y el mundo sufren por lo que ellos pierden.
+
+Los cristianos piensan, por lo general, que es su responsabilidad el producir fruto, que tienen que hacer algo en gratitud por lo que Cristo hizo por ellos. Por eso tratan de ser buenos, justos, generosos, fieles y mostrarse alegres, exhibir todas las cualidades que adornan a Jesús. Se esfuerzan mucho solo para fracasar al final. Al darse cuenta de que es imposible para ellos cumplir con el estándar de bondad que se han fijado a sí mismos, o rebajan ese estándar o se dedican a realizar actividades que les creen la ilusión de éxito. Esto puede describir muy bien la relación que tiene usted con Dios.
+
+Lewis Sperry Chafer, el fundador del Seminario Teológico de Dallas, en los Estados Unidos de América, escribió: "Mucho de nuestra vida cristiana no es más que una anestesia barata para insensibilizar el dolor de una vida vacía". A. W. Tozer, en su libro *The Divine Conguest* lo expresó de otra manera: "Que la pequeñez de mucha de nuestra experiencia religiosa no se remonte a nuestra costumbre de saltar por el corredor del reino como niños en el mercado, hablando siempre de todo, pero sin aprender el valor verdadero de nada".
+
+Estas palabras describen el estado espiritual de Israel en el tiempo de Jesús. Pero, para no pecar de condenadores, debemos reconocer que esta denuncia contra Israel nos toca también a nosotros. La clase de vida que Dios nos ha llamado a vivir no es simplemente difícil, sino además absolutamente inalcanzable, al menos como hemos tratado de vivirla. Por fortuna, Jesús nos ofrece un camino mejor.
+
+### LA VIDA DE ALGUIEN QUE SIRVE PARA ALGO
+
+La parábola involucra a tres figuras principales: la viña (Jesús. "Yo soy"), el viñador ("mi Padre") y las ramas (sus seguidores).
+
+> Toda rama que en mi no está llevando fruto, la quita; y toda rama que está llevando fruto, la limpia para que lleve más fruto.
+> 
+> *Juan 15:2*
+
+La expresión **"en mi"** representa lo que los teólogos llaman la verdad posicional. El apóstol Pablo describe a los cristianos como aquellos que están "en Cristo". Esta frase describe figuradamente que la relación de una persona con Cristo es de tal naturaleza, que Dios trata a esa persona de la misma manera que trataría a Jesús.
+
+Imagine esto de la manera siguiente: Si usted tuviera que dirigirse en su coche a la entrada frontal de la casa de gobierno en cualquier ciudad alrededor del mundo, al final tendría que darse vuelta, ya que los guardias no le permitirían entrar. Sin embargo, si el presidente manda su coche oficial a recogerle y conducirle hasta la entrada, recibirá el mismo trato que él. Por estar usted en el automóvil del presidente, el guardia le dará el mismo trato debido al presidente. Apretará un botón y la puerta se abrirá antes de que el conductor tenga la oportunidad de frenar.
+
+Estar "en Cristo" pone a la persona en una relación correcta con el Padre celestial. Pablo dice: "Ninguna condenación hay para los que están en Cristo Jesús" (Rom. 8:1). El creyente es considerado con la misma posición de Cristo. Teniendo el creyente seguro su destino eterno, Jesús pasa del asunto de la posición, "en mi", al de la producción. El propósito de una rama no es diferente al de la viña: producir fruto. Jesús dijo: "Toda rama que en mi no está llevando fruto, [el Padre] la quita".
+
+Muchas versiones de la Biblia traducen como "quitar" "remover" o incluso "cortar" lo que hay en este versículo, pero su definición primaria es, según el *Theological Dictionary of the New Testament* de Gerhard Kittel, "T*evantar del suelo*". La expresión puede significar, y a menudo significa, sigue diciendo Kittel, "levantar con el propósito de llevar, trasladar o dejar". En correspondencia con la metáfora, Jesús se refería más probablemente a la práctica del viñador de levantar una rama debilitada y de atarla al armazón del vinedo, un procedimiento llamado "de preparación". El viñador también podaba bien las ramas para estimular su sano crecimiento.
+
+Para interpretar una parábola es necesario que apreciemos la riqueza de imágenes de la historia, sin tratar de ver más de lo que el autor se propuso. Cuando hacemos un alto para ver algo muy detenidamente, lo visto llevará la huella de nuestra imaginación. Por tanto, debemos evitar ver más de lo que dice la parábola. Jesús no dijo qué cosa representaba el fruto. Algunos han propuesto que el fruto de un creyente es otro creyente; dicho de otra manera, que una persona ha decidido poner su fe en Jesucristo como resultado de la influencia de un creyente. Es posible que esto sea lo que el Señor Jesús tenía en mente, pero “fruto” puede referirse también a algún otro producto importante.
+
+El apóstol Pablo utilizó la imagen del fruto para referirse a las cualidades de carácter propias de un creyente sano y maduro. Pablo señala una serie de cualidades cristianas en su carta a los gálatas: "El fruto del Espíritu es: amor, gozo, paz, paciencia, benignidad, bondad, fe, mansedumbre y dominio propio. Contra tales cosas no hay ley" (Gal. 5:22, 23).
+
+No obstante, no sabemos qué quiso decir específicamente Jesús con la palabra "fruto". En la imaginería de la Biblia, el fruto proporciona una prueba de identidad inconfundible. Por ejemplo, el ojo inexperto tendrá dificultades para ver la diferencia que hay entre un manzano y un peral. Pero si las ramas están llenas de peras, nadie puede confundir la identidad del árbol. Además, una abundante cosecha de frutos es una señal incuestionable de salud. Hasta un novato en horticultura sabe que sólo una planta fuerte y vibrante puede dar fruto abundante y delicioso.
+
+> Permaneced en mí, y yo en vosotros. Como la rama no puede llevar fruto por sí sola, si no permanece en la vid, así tampoco vosotros, si no permanecéis en mí. Yo soy la vid, vosotros las ramas. El que permanece en mí y yo en él, éste lleva mucho fruto. Pero separados de mí, nada podéis hacer.
+> 
+> *Juan 15:4,5*
+
+Observemos que Jesús nunca mandó a los creyentes a producir fruto. Dar fruto es el propósito de la rama, pero no la responsabilidad de ésta. La rama no puede producir nada por sí misma. Sin embargo, si ella permanece unida a la vid, recibirá la savia nutritiva, alimentación, fuerza, todo lo que necesita. Si la rama permanece unida a la vid, inevitablemente estará cargada de uvas.
+
+El objetivo de la actividad de un cristiano no es esforzarse al máximo para dar fruto, sino mantener limpia y fuerte su relación con Jesús, y una manera de hacerlo es absorbiendo la enseñanza de la Palabra de Dios, los sesenta y seis libros de la Biblia. Lea la Palabra de Dios... medite en ella, póngala en práctica, hable de ella con otros, haga preguntas, memorice partes de ella. La vitalidad y la productividad vienen de permanecer conectados. Porque, de acuerdo con Jesús, el no permanecer conectados con la vid lleva a consecuencias trágicas:
+
+> Si alguien no permanece en mí, es echado fuera como rama, y se seca. Y las recogen y las echan en el fuego, y son quemadas.
+> 
+> *Juan 15:6*
+
+La interpretación de Juan 15:6 es un tema de mucho debate entre los creyentes. Algunos han dicho que el que "no permanece en mí" es un creyente que no ha sido fiel y que ha perdido su salvación. Pero Jesús dijo que nadie puede ser salvo y después no ser salvo (Juan 10:27-29). Otros proponen que el que "no permanece" nunca fue un verdadero creyente, como aquellos que rechazaron a Jesús por completo o quienes simplemente dicen creer, y no es así. Pero el contexto de toda la ilustración de Jesús se centra y se limita a los creyentes. Lo sabemos, porque Juan 15:2 habla de toda rama "en mi", lo que supone que existe una relación, y porque 15:3 especifica al público de Jesús como aquellos que estaban "ya limpios".
+
+Jesús estaba pensando quizás en la analogía de Ezequiel, profeta del Antiguo Testamento:
+
+> Entonces vino a mí la palabra del SEÑOR, diciendo: Oh hijo de hombre, ¿qué es la madera de la vid, comparada con la madera de cualquier otra rama de los árboles del bosque? ¿Tomarán de su madera para hacer algún objeto? ¿Tomarán de ella siquiera una estaca para colgar de ella cualquier utensilio? He aquí que más bien es echada al fuego para ser consumida; el fuego consume sus dos extremos, y su parte de en medio es abrasada. ¿Servirá para hacer algún objeto?
+> 
+> *Ezequiel 15:1-5*
+
+El punto es simplemente este: los viñadores echan a un lado las ramas desconectadas, porque están muertas. Las ramas secas no sirven para nada. El comentarista bíblico Warren Wiersbe en su *The Bible Exposition Commentary*, lo dice muy bien:
+
+> Es poco sensato crear una doctrina teológica a partir de una parábola o de una alegoría. Jesús estaba enseñando una verdad fundamental, la vida fructífera del creyente, y nosotros no debemos insistir demasiado en los detalles. Así como una rama infructífera no sirve para nada, un creyente infructífero tampoco es de utilidad; y hay que ocuparse de ambos. Es una tragedía que un creyente que dio fruto en el pasado se vuelva atrás y pierda sus privilegios de comunión y servicio.
+
+Alguien que no es capaz de permanecer en Cristo es una persona que está tratando de transformar su carácter para producir cualidades cristianas, sin mantener la conexión con Cristo. Y eso es fútil; nunca funciona. En realidad, es el plan perfecto para secarse y marchitarse. Jesús, al utilizar la analogía de Ezequiel, dice que una vida así no sirve para nada. El tratar de producir un buen carácter con nuestras propias fuerzas no solo conduce a la futilidad, sino que muchas veces produce el resultado contrario de lo que deseamos.
+
+El apóstol Pablo avanzó un poco más, con la imagen del fuego. Al pensar en las obras del cristiano como los materiales de construcción de una casa, imaginó de qué manera podría la construcción sobrevivir a un fuego.
+
+> Porque nadie puede poner otro fundamento que el que está puesto, el cual es Jesucristo. Si alguien edifica sobre este fundamento con oro, plata, piedras preciosas, madera, heno u hojarasca, la obra de cada uno será evidente, pues el día la dejará manifiesta. Porque por el fuego será revelada; y a la obra de cada uno, sea la que sea, el fuego la probará. Si permanece la obra que alguien ha edificado sobre el fundamento, él recibirá recompensa. Si la obra de alguien es quemada, él sufrirá pérdida; aunque él mismo será salvo, pero apenas, como por fuego.
+> 
+> *1 Corintios 3:11-15*
+
+Vivir la vida sin una absoluta dependencia de Cristo es como construir una casa con madera seca y agrietada y luego rellenar las paredes con paja para el aislamiento térmico. Una sola chispa la consumirá por completo, en un instante. El dueño de la casa escapará de las llamas, pero no tendrá nada que mostrar por todos sus esfuerzos.
+
+Al seguir Jesús con su parábola de la vid, prefirió concentrarse en lo positivo:
+
+> Si permanecéis en mí, y mis palabras permanecen en vosotros, pedid lo que queráis, y os será hecho. En esto es glorificado mi Padre: en que llevéis mucho fruto y seáis mis discípulos.
+> 
+> *Juan 15:7,8*
+
+Cuando el creyente permanece conectado vitalmente a Jesucristo, comienza a experimentar el fruto de las cualidades de Cristo. El creyente es transformado desde adentro. Su mente se mantiene fija en la clase de pensamientos que Dios tiene. El corazón del creyente comienza a latir en perfecto ritmo con el del Padre celestial, de manera que sus deseos son un reflejo de los deseos de Dios. Cuando esto sucede, vemos al menos cuatro resultados.
+
+Primero, **las oraciones son respondidas**. Esto no significa que Dios se convertirá en nuestro genio o duende personal, porque la promesa es condicional. Si estamos conectados a la vid y siendo cada vez más como Jesús, nuestras oraciones no serán egoístas, sino la clase de peticiones que él haría. Jesús recibía todo lo que pedía, porque él y su Padre estaban de manera completa y consistente en una misma línea de pensamiento.
+
+Segundo, **Dios es glorificado**. Cuando imitamos el carácter de Jesús, obedeciendo sus mandamientos de la misma manera que él obedecía los de su Padre, el trino Dios recibe todo el crédito. El Señor se deleita cuando nos ve reflejar su carácter, y él busca oportunidades para amar de manera especial a sus hijos como respuesta.
+
+Tercero, **se suscita el amor**. Notemos la ausencia de lucha o de esfuerzo. Cuando permanecemos en Cristo, las cualidades de carácter que honran al Señor comienzan a surgir, como se producen las uvas de manera natural de una rama saludable que está conectada a la vid. Puesto que Dios es amor (1 Jn. 4:8), los demás notarán cómo se desarrolla esta divina cualidad en nosotros.
+
+Cuarto, **habrá sobreabundancia de gozo**. Este gozo no se refiere a la felicidad superficial ni a la alegría pasajera. Gozo es el contentamiento que se siente en lo más profundo del ser que trasciende las circunstancias difíciles y que produce el mayor deleite en todas las buenas experiencias. No tiene nada que ver con las carcajadas, sino que el permanecer en Cristo inspira una risa como uno nunca ha experimentado antes. El gozo que produce el contentamiento profundo proviene de una seguridad y de una confianza absolutas, aun en medio de las pruebas. Como dice el refrán: "El gozo es la bandera que ondea sobre el castillo de nuestro corazón, anunciando que el Rey se encuentra en él".
+
+### LA NUEVA VIÑA
+
+Muchos siglos antes de la venida de Jesucristo a Jerusalén, Dios plantó una viña en la tierra prometida. Pero las ramas de esa viña se marchitaron y consumieron, dejando de producir el buen fruto. Israel, como cada uno de nosotros podía testificar, y no fue capaz de agradar a Dios.
+
+Jesús vino para hacer lo que ni Israel ni nosotros podemos hacer. Ahora bien, él es la viña y será fiel produciendo fruto. Jesús nos invita a pegarnos a él, como la rama se mantiene en la vid, para que podamos ser parte de esta gran empresa productora de fruto. Pero esto no se refiere a la salvación, ya que cuando él se reunió para tener su última noche con sus discípulos, el asunto de la salvación ya había sido resuelto. Se trata de tener una vida abundante y de producir una gran cosecha de las cualidades de Cristo en nuestro carácter.
+
+Si su destino eterno está ya sellado por su fe en Cristo, la pregunta crucial para ustedes es cómo va a vivir ahora. ¿Tratará de convertirse en una persona buena y justa por sus propios medios... y no llegar a servir para nada? ¿O va a permanecer en Cristo... para permitir que él produzca lo bueno en usted?
+
+Aquella noche en que Jesús partió el pan sin levadura y lo llamó su cuerpo, y cuando derramó el vino ceremonial y lo llamó su sangre, invitó a sus discípulos a comer y a beber. Hizo todo esto, otro símbolo más, para enseñar a sus seguidores que la vida tiene que proceder de él.
+
+Cuando me senté a escribir este libro, encontré que el principio de "permanencia" estaba en actividad. Poco después de haber comenzado a escribir el primer capítulo, me vino enfrentado a un periodo de estrés poco común. Varios hechos importantes de mi vida personal, de mi ministerio en la iglesia, e incluso de mi ministerio radial, cada uno de los cuales podía alterar definitivamente mi vida, comenzaron a perturbar prácticamente todo lo que había en mi mundo. Sinceramente, no tenía idea de cómo podría terminar este manuscrito cuando todo se estaba desmoronando. Pero mi hija Charissa hizo un interesante y útil comentario: "¿Qué mejor tiempo para escribir un libro sobre Jesús, cuando la única alternativa es confiar en él?"
+
+Ella tenía razón. Ya tenía hecha la investigación. Había bosquejado todo lo que necesitaba expresar. Sin embargo, el proceso de poner las palabras adecuadas en cada página era una cosa diferente. Ya es bastante difícil cuando uno se siente bien y la mente está libre del perturbador estrés, pero los problemas que enfrentaba hacían imposible la tarea. Veía que cuanto más esfuerzo le dedicaba al libro, más lentamente se hacía el proceso. Solo después de confesar mi absoluta incapacidad para terminar la tarea y someterme a la soberana voluntad de Dios me vinieron las palabras. Si descuidaba mi tiempo regular con la Palabra de Dios y la oración para poder terminar un poco más de páginas, el trabajo que hacía no servía para nadie y tenía que comenzar otra vez. De hecho, cuando pienso en todos los libros que he escrito, sucedía lo mismo. Pero no me había dado cuenta de esto hasta que este nuevo libro hizo del principio de permanencia en el Señor un asunto de supervivencia.
+
+Ahora bien, ¿qué mayor tontería puede haber que el intento de un ministro de Dios de escribir un libro sobre Jesucristo sin dedicar tiempo a conocerlo a él personalmente? ¡Eso, por supuesto, es tan tonto como una rama muerta tratando de producir una uva!
