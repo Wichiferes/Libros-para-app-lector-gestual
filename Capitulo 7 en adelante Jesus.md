@@ -827,3 +827,267 @@ Cuando me senté a escribir este libro, encontré que el principio de "permanenc
 Ella tenía razón. Ya tenía hecha la investigación. Había bosquejado todo lo que necesitaba expresar. Sin embargo, el proceso de poner las palabras adecuadas en cada página era una cosa diferente. Ya es bastante difícil cuando uno se siente bien y la mente está libre del perturbador estrés, pero los problemas que enfrentaba hacían imposible la tarea. Veía que cuanto más esfuerzo le dedicaba al libro, más lentamente se hacía el proceso. Solo después de confesar mi absoluta incapacidad para terminar la tarea y someterme a la soberana voluntad de Dios me vinieron las palabras. Si descuidaba mi tiempo regular con la Palabra de Dios y la oración para poder terminar un poco más de páginas, el trabajo que hacía no servía para nadie y tenía que comenzar otra vez. De hecho, cuando pienso en todos los libros que he escrito, sucedía lo mismo. Pero no me había dado cuenta de esto hasta que este nuevo libro hizo del principio de permanencia en el Señor un asunto de supervivencia.
 
 Ahora bien, ¿qué mayor tontería puede haber que el intento de un ministro de Dios de escribir un libro sobre Jesucristo sin dedicar tiempo a conocerlo a él personalmente? ¡Eso, por supuesto, es tan tonto como una rama muerta tratando de producir una uva!
+
+# Capítulo once  
+## Se forma la tormenta  
+
+Usted probablemente sabe adonde lleva esta narración. Antes de que termine la historia, Jesús será crucificado y, al menos por una vez, sus discípulos estarán completamente desilusionados y preguntándose: **¿Qué salió mal?** Lo más probable es que recordaran que sus esperanzas mesiánicas se deshicieron aquel día específico en Capernatim cuando Jesús comenzó a hacer una selección de entre las multitudes que le seguían.
+
+Por otra parte, Jesús nunca consideró su camino a la cruz como algo que no fuera la exitosa revelación progresiva de un plan. Ya él había dicho al comienzo de su ministerio:
+
+> “No penséis que he venido para traer paz a la tierra. No he venido para traer paz, sino espada” (Mat. 10:34).
+
+La espada de la cual habló es **el más afilado de todos los instrumentos del conflicto: la verdad**; quienes la empuñan se verán perseguidos por las fuerzas del mal.
+
+Después de dar de comer a cinco mil hombres y sus fami-
+
+<!-- Page 2 -->
+
+las en la región montañosa de Galilea, Jesús se reunió con sus discípulos junto a las olas del mar cercano, y luego zarparon hacia Capernaúm. Mientras tanto, las multitudes trataban frenéticamente de seguirle; finalmente dedujeron que debió haber acompañado a los discípulos al regreso de estos al pueblo de Pedro, Andrés, Jacobo y Juan.
+
+Cuando llegaron, encontraron a Jesús enseñando en la sinagoga. Entonces lo confrontaron con la sospecha de que él los había evitado deliberadamente, pero Jesús respondió su reclamo con una acusación.
+
+> De cierto, de cierto os digo que me buscáis, no porque habéis visto las señales, sino porque comisteis de los panes y os saciasteis. Trabajad, no por la comida que perece, sino por la comida que permanece para vida eterna, que el Hijo del Hombre os dará.  
+> (Juan 6:26, 27)
+
+Para los judíos que estaban reunidos alrededor de Jesús en la sinagoga, la amonestación era un eco de la voz de Moisés, quien había confrontado a la errabunda generación de israelitas.
+
+> Acuérdate de todo el camino por donde te ha conducido el SEÑOR tu Dios estos cuarenta años por el desierto, con el fin de humillarte y probarte, para saber lo que estaba en tu corazón, y si guardarías sus mandamientos, o no. Él te humilló y te hizo sufrir hambre, pero te sustentó con maná, comida que tú no conocías, ni tus padres habían conocido jamás. Lo hizo para enseñarte que no solo de pan vivirá el hombre, sino que el hombre vivirá de toda palabra que sale de la boca del SEÑOR.  
+> (Deuteronomio 8:2, 3)
+
+El pueblo del pacto de Dios luchó en el desierto con la opción de llenar sus vientres o de alimentar sus almas. Dios les había dado el maná (una comida parecida al pan, que caía en la tierra durante la noche) para sostener a los errantes israelitas, y para enseñarles que debían valorar la Palabra de Dios más que a la satisfacción física. De igual manera, Jesús había provisto comida más que suficiente para los más de
+
+<!-- Page 3 -->
+
+cinco mil seguidores que habían estado en la montaña. A lo largo de todo su ministerio, él había prometido:
+
+> "Más bien, buscad primeramente el reino de Dios y su justicia, y todas estas cosas [sus necesidades físicas] os serán añadidas" (Mat. 6:33).
+
+Los maestros saben, por lo general, cuándo un estudiante se empeña en desconocer ciegamente la verdad prefiriendo lo falso. Ninguna cantidad de educación o de persuasión logrará hacerlo cambiar. La mayoría de los seguidores que se habían reunido alrededor de Jesús en la sinagoga querían un rey que simplemente les diera seguridad política y abundancia material. Querían un Mesías que los liberara de Roma, no un Salvador que los salvara del pecado. Querían saber cómo agradar a Dios, no porque le temieran o le amaran, sino porque un dios feliz bendice a la gente mientras que un dios enojado hace cosas malas. Le habían preguntado:
+
+> “¿Qué haremos para realizar las obras de Dios?” (Juan 6:28).
+
+La pregunta era fundamental, no solo para el destino eterno de las personas que la hicieron, sino también para el futuro del Mesías. Este había venido a morir por aquellos que creyeran en él, para salvarlos de su pecado y del justo castigo de la ira de Dios. Sin embargo, debía haber muerto a manos de los enemigos de Israel, de los adversarios del reino de Dios, no de su propia gente.
+
+Pero la línea de batalla entre el bien y el mal no reconoce fronteras ni razas ni umbrales. La batalla cósmica entre el bien y el mal separa a un corazón de otro sin hacer ninguna discriminación, porque cada persona elige el lado en que va a estar. Curiosamente, no se trata de elegir entre la verdad y la falsedad, ya que Dios nunca le exigiría a una mente entenebrecida que hiciera tal elección. Eso sería más cruel que exigirle a un paralítico que se arrastrara hasta un estanque en una carrera para lograr su sanidad. **Nosotros elegimos la manera como responderemos al Redentor**, quien ofrece algo que sabemos por naturaleza que no está en nosotros. Quienes lo rechazan, lo hacen a sabiendas. En algún punto de la vida de toda persona, la ignorancia deja de ser el punto: o elegimos seguir la voz que resuena en los vacíos de nuestra alma, o nos inclinamos por la ceguera deliberada.
+
+Por eso Jesús dijo:
+
+> “No penséis que he venido para traer paz a la tierra. No he venido para traer paz, sino espada.
+
+<!-- Page 4 -->
+
+> Porque yo he venido para poner en disensión al hombre contra su padre, a la hija contra su madre y a la nuera contra su suegra. Y los enemigos de un hombre serán los de su propia casa” (Mat. 10:34-36).
+
+Sin lugar a dudas, Dios quiere la unidad de la familia, pero, lamentablemente, **la verdad de Jesucristo es fuente de división**. En la mayoría de las cuestiones hay muchas zonas grises, pero no en esta. Todo el mundo, incluyendo a cada familia, ha sido dividido en reinos, ya sea de luz o de tinieblas.
+
+**¿Qué tenemos que hacer para llevar a cabo las obras que Dios pide?** Jesús dijo:
+
+> “Esta es la obra de Dios: que creáis en aquel que él ha enviado” (Juan 6:29).
+
+Con la venida de Cristo, el reino de Dios ya no es uno que es definido por la geografía, sino uno que se establece en los corazones de quienes eligen creer.
+
+En un punto de su ministerio, quizás aquel mismo día en Capernatim, Jesús comenzó a enseñar por medio de parábolas. Cuando le preguntaron por qué lo hacía, respondió:
+
+> “Por esto les hablo por parábolas; porque viendo no ven, y oyendo no oyen, ni tampoco entienden” (Mat. 13:13).
+
+Las parábolas de Jesús le permiten al observador ver lo que su corazón decide ver, que se expresa por la manera como la persona responde a Jesús.
+
+Una vez hecha esa decisión, Jesús ofrece una parábola selladora del destino, una grieta que se convertiría en un abismo.
+
+> …Jesús les dijo:  
+> —De cierto, de cierto os digo que no os ha dado Moisés el pan del cielo, sino mi Padre os da el verdadero pan del cielo. Porque el pan de Dios es aquel que desciende del cielo y da vida al mundo…  
+> Yo soy el pan de vida. El que a mí viene nunca tendrá hambre, y el que en mí cree no tendrá sed jamás.  
+> (Juan 6:32, 33, 35)
+
+Algunos creyeron, y muchos rezongaron y Jesús continuó diciendo:
+
+> Vuestros padres comieron el maná en el desierto y murieron. Este es el pan que desciende del cielo, para que el que coma de él no muera. Yo soy el pan vivo que descendió del cielo; si alguno come de este pan, vivirá
+
+<!-- Page 5 -->
+
+> para siempre. El pan que yo daré por la vida del mundo es mi carne.  
+> (Juan 6:49-51)
+
+Este, por supuesto, era el anuncio de Jesús de que se sacrificaría a sí mismo para dar vida eterna a cualquiera que quisiera recibirla. Pero **la línea de falla entre los creyentes verdaderos y los eventuales conspiradores** se hacía cada vez más grande.
+
+> Entonces los judíos contendían entre sí, diciendo:  
+> —¿Cómo puede este darnos a comer su carne?  
+> Y Jesús les dijo:  
+> —De cierto, de cierto os digo que si no coméis la carne del Hijo del Hombre y bebéis su sangre, no tenéis vida en vosotros. El que come mi carne y bebe mi sangre tiene vida eterna, y yo lo resucitaré en el día final. Porque mi carne es verdadera comida, y mi sangre es verdadera bebida. El que come mi carne y bebe mi sangre permanece en mí, y yo en él. Así como me envió el Padre viviente, y yo vivo por el Padre, de la misma manera el que me come también vivirá por mí. Este es el pan que descendió del cielo. No como los padres que comieron y murieron, el que come de este pan vivirá para siempre.  
+> (Juan 6:52-58)
+
+Nada volvería a ser lo mismo después de eso. Si Jesús hubiera estado compitiendo por un cargo público, su jefe de campaña habría renunciado. **Ese día en Capernatim, Jesús dividió a su público** y provocó el distanciamiento de la mayoría. Los expertos en política que había entre los doce se pusieron las manos en la cabeza al ver que su futuro en el nuevo gobierno de Israel se hacía humo. Pero Jesús no había venido para ganarse la aprobación de la gente, ni para volcar hacia él el voto de una mayoría excluida para que lo pusieran de inmediato en una posición de poder en Jerusalén. Él había venido a decir **una verdad solemne**. Seamos honestos: la verdad pocas veces es popular. De hecho, ofende por lo general a la mayoría.
+
+Hablando de esto, fue en ese momento que muchos abandonaron a Jesús. Él no era el Mesías que ellos estaban buscando. Jesús se volvió hacia los doce y les preguntó:
+
+> “¿Queréis acaso iros vosotros también?” (Juan 6:67).
+
+La respuesta de Pedro fue, en realidad: **“Señor, no entendemos exactamente todo lo que dijiste, pero tú eres nuestra única esperanza. No tenemos adonde más ir. Te hemos elegido a ti, y eso es definitivo”.**
+
+Estas fueron las palabras más gratas y auténticas que un discípulo pudo haber dicho.
+
+Jesús respondió, aclarando un asunto delicado y haciendo una observación escalofriante.
+
+> “¿No os escogí yo a vosotros doce, y uno de vosotros es diablo?” (Juan 6:70).
+
+La batalla cósmica entre el bien y el mal separa a un corazón de otro, y ese día, **una sutil grieta, muy pequeña, se había formado alrededor de los suyos**.
+
+---
+
+## GUÍAS CIEGOS
+
+La división que había entre Jesús y los fariseos fue siempre enorme. Él había venido para hablar la verdad, mientras que ellos deseaban tener el control. **Una cosa será siempre cierta en cuanto a los controladores: lo que no pueden controlar, lo destruyen.**
+
+Mientras Jesús estaba todavía ministrando en Galilea, un enviado de los fariseos viajó desde Jerusalén para tratar con Jesús un asunto que los preocupaba mucho. Probablemente lo vieron como una misión de misericordia por medio de la cual salvarían a un errático rabí. Por supuesto, quienes necesitan tener el control no ven al mundo en términos de conformidad con la verdad o la falsedad, sino en términos de lo que esté de acuerdo con ellos.
+
+> “¿Por qué quebrantan tus discípulos la tradición de los ancianos? Pues no se lavan las manos cuando comen pan.”  
+> (Mateo 15:2)
+
+Sus primeras palabras ofrecen la primera pista de que algo estaba muy mal. Los emisarios de la capital religiosa judía habían hecho un viaje de cuatro días para quejarse de que los discípulos de Jesús no se lavaban las manos antes de comer. Para nosotros, eso es algo trivial, pero para los fariseos el asunto de la limpieza ceremonial de las manos sintetizaba todo lo que un fiel judío valoraba, incluyendo la pureza y su diferenciación del mundo en general.
+
+<!-- Page 7 -->
+
+**Se forma la tormenta** – 185
+
+Alfred Edersheim, en su libro *La vida y los tiempos de Jesús el Mesías*, capta muy bien la rutina de la ceremonia de los fariseos:
+
+> Antes de cada comida había jarras con agua preparadas para ser usadas. La cantidad mínima de agua que se utilizaba era la cuarta parte de una medida hebrea de líquidos, el log, equivalente a 0,084 litros, para llenar una y media cáscara de huevo. El agua se vertía primero sobre ambas manos, con los dedos apuntando hacia arriba, y debía correr por el brazo hasta la muñeca. Esta agua debía caer de la muñeca, ya que el agua se había ensuciado por haber tocado unas manos sucias y, si ella volvía a correr sobre los dedos los ensuciaría de nuevo, haciéndolos impuros. El proceso se repetía después con las manos en la dirección contraria, con los dedos apuntando hacia abajo; después, finalmente, cada mano era limpiada restregándose una con otra. Un judío muy estricto hacia todo esto, no solo antes de cada comida, sino además entre cada uno de los platos de la comida.
+
+Muchos siglos antes de esta confrontación, el pueblo judío había sido conquistado por los caldeos y llevado cautivo para servir al imperio de Babilonia. Con el templo destruido y su tierra convertida en colonia de otras culturas, los judíos buscaron apoyo en la Ley de Dios para preservar su identidad nacional y mantener su particularidad como el pueblo escogido por Dios. Para ayudarlos a aplicar la Ley cada día en su nuevo y desconocido país, los maestros de las Escrituras judías escribieron instrucciones muy precisas para que el pueblo las obedeciera. Sin embargo, lo que comenzó como una ayuda práctica para los judíos concienzudos, se convirtió en **una tradición sagrada que se volvió un fin en sí misma**.
+
+Este estricto cuerpo de tradiciones sustituyó, con el paso del tiempo, a la misma Ley que deseaba afirmar. Y en el tiempo de Jesús, la inobservancia de esta tradición era considerada una desobediencia a la ley de Dios. Además, esta religiosidad de manufactura humana se convirtió en el medio mediante el cual los fariseos mantenían la ilusión de una superioridad moral. Irónicamente, su celo religioso los enfrentaba a Dios. No solo estaban motivados por el ansia de poder, sino que además sus
+
+<!-- Page 8 -->
+
+**186 – JESÚS: LA VIDA MÁS GRANDE DE TODAS**
+
+tradiciones violaban muchas veces la misma Ley que supuestamente alababan.
+
+> Él [Jesús] les respondió diciendo:  
+> —¿Por qué también vosotros quebrantáis el mandamiento de Dios por causa de vuestra tradición? Porque Dios dijo: Honra a tu padre y a tu madre, y: El que maldiga a su padre o a su madre muera irremisiblemente. Pero vosotros decís que cualquiera que diga a su padre o a su madre: "Aquello con que hubieras sido beneficiado es mi ofrenda a Dios", no debe honrar a su padre. Así habéis invalidado la palabra de Dios por causa de vuestra tradición. ¡Hipócritas! Bien profetizó Isaías de vosotros diciendo:  
+> Este pueblo me honra de labios,  
+> pero su corazón está lejos de mí.  
+> Y en vano me rinden culto,  
+> enseñando como doctrina  
+> los mandamientos de hombres.  
+> (Mateo 15:3-9)
+
+**La espada de la verdad tiene solo un objetivo: el corazón**, y cuando el corazón de un hipócrita es perforado, este sangra resentimiento... y finalmente, odio. Jesús terminó su reprimenda con una aclaración:
+
+> “¡Oíd y entended! Lo que entra en la boca no contamina al hombre; sino lo que sale de la boca, esto contamina al hombre” (Mat. 15:10, 11).
+
+Después de que los fariseos regresaron a Jerusalén, los nerviosos discípulos de Jesús se acercaron a este para hacer una observación que estoy seguro pensaban que sería útil. **“¿Sabes que los fariseos se ofendieron al oír esas palabras?”**. Los doce entendieron las implicaciones; temían que el enfrentamiento tuviera algo más que una repercusión política, ya que los fariseos se habían afianzado exitosamente como el paradigma de la cultura y la religión judías en la mente judía colectiva. **Ofender a los fariseos era levantarse contra una institución de más de cuatrocientos años de existencia.**
+
+En el año 167 a. de J.C., el conquistador seléucida Antíoco Epifanes invadió Israel y obligó a los judíos a rendir culto pagano. Pero en el pueblo de Modín, un virtuoso sacerdote tomó la espada e inició lo que después se conoció como la Re-
+
+<!-- Page 9 -->
+
+**Se forma la tormenta** – 187
+
+vuelta de los Macabeos. La Jánuca o Fiesta de las luces, celebra la victoria que se logró como resultado de la negativa de un sacerdote a abandonar su pureza judía. Esta era el legado que reivindicaban los fariseos. Sus **“tradiciones” eran la piedra angular** sobre la que procuraban reconstruir a la nación.
+
+Los discípulos estaban conscientes del peligro. **Rechazar esta piedra angular significaba arriesgarse a ser aplastados por ella.**  
+Jesús lo sabía, también.
+
+---
+
+## “AY DE VOSOTROS”
+
+La entrada triunfal de Jesús a la capital de los hebreos significó un cambio en su relación con la ciudad santa. Ya no estaba visitándola como un adorador; **la estaba reclamando como Rey**. Sus súbditos habían cubierto su camino hasta la ciudad con ramas de palmeras y con sus propios mantos, gritando: **“¡Hosanna!”**, que significa: **“¡Sálvanos!”**.
+
+Mientras que el pueblo celebraba, Jesús lloraba.
+
+> ¡Oh, si conocieses tú también, por lo menos en este tu día, lo que conduce a tu paz! Pero ahora está encubierto a tus ojos. Porque vendrán sobre ti días en que tus enemigos te rodearán con baluarte y te pondrán sitio, y por todos lados te apretarán. Te derribarán a tierra, y a tus hijos dentro de ti. No dejarán en ti piedra sobre piedra, por cuanto no conociste el tiempo de tu visitación.  
+> (Lucas 19:41-44)
+
+El primer acto oficial de Jesús se produjo poco después de llegar al templo. En varias ocasiones, él había denunciado la corrupción que había en los atrios exteriores de una institución que había llegado a ser conocida como **el bazar de Anás**, pero eso fue antes de que este asumiera el cargo de sumo sacerdote.
+
+La revuelta de los Macabeos comenzó con un sacerdote, y el gobierno resultante estuvo bajo la jefatura de sus hijos. Así, pues, el cargo de sumo sacerdote se había convertido, en la práctica, en una posición real. También, por ese tiempo, Israel había cedido la mayor parte de su independencia a Roma, a cambio de protección. Cirenio, el gobernador de Siria, puesto por Roma, eligió a un joven y astuto aristócrata llamado Anás
+
+<!-- Page 10 -->
+
+como sacerdote y gobernante de Israel. Pero pocos años después, los vientos políticos cambiaron y un nuevo procurador favoreció con el cargo a otra persona. Depuso a Anás, pero, para entonces, este se había afirmado como **el patriarca de lo que solo podría describirse como una familia de delincuentes**, no diferente a una mafia en la antigüedad.
+
+Anás se retiró de la escena pública, pero siguió teniendo el control de todos los cargos políticos de Jerusalén, incluyendo el de sumo sacerdote. Después de ser depuesto del cargo, no menos de cinco hijos y un nieto llegaron a ese cargo después que él, y en el tiempo de Jesús, su yerno, **Caifás**, gobernaba el templo.
+
+El bazar de Caifás mantenía fluyendo el dinero a los bolsillos de la familia, y financiaba su corrupto control del poder. Los jefes de los sacerdotes se negaban a aceptar cualquier moneda que no fueran los siclos acuñados en Israel. Los cambistas que había dentro de los recintos del templo cambiaban con gusto cualquier moneda por los siclos judíos a un precio exagerado, y luego se embolsaban la diferencia. Además de esto, la Ley de Moisés establecía que cualquier animal que fuera ofrecido a Dios tenía que ser sin defecto; solo podían ser los mejores. Por tanto, los hombres que manejaban el templo inspeccionaban a los animales traídos para el sacrificio, y lo hacían de una manera ostensible para verificar que las ofrendas eran dignas. Sin embargo, esto no era más que una artimaña, ya que rechazaban arbitrariamente a los animales para poder ofrecer un reemplazo adecuado a cambio... y añadir el cobro de una comisión. **¡Irónicamente, el animal “adecuado” ofrecido a cambio, solo unos minutos antes había sido considerado inadecuado para el sacrificio de un anterior adorador!**
+
+> Entró Jesús en el templo y echó fuera a todos los que vendían y compraban en el templo. Volcó las mesas de los cambistas y las sillas de los que vendían palomas, y les dijo:  
+> —Escrito está: Mi casa será llamada casa de oración, pero vosotros la habéis hecho cueva de ladrones.  
+> (Mateo 21:12, 13)
+
+Los saduceos, el belicoso grupo de rivales y de peones de Anás, encontraron en Jesús a un enemigo común. Ninguno de
+
+<!-- Page 11 -->
+
+**Se forma la tormenta** – 189
+
+ellos agradecía el cierre de su máquina de producir dinero. Por consiguiente,
+
+> “los principales sacerdotes y los escribas y los principales del pueblo procuraban matarle. Pero no hallaban manera de hacerle algo, porque el pueblo le escuchaba con mucha atención” (Luc. 19:47, 48).
+
+Después de limpiar los atrios del templo de la corruptela de los saduceos, Jesús fustigó la hipocresía de los fariseos.
+
+> Los escribas y los fariseos están sentados en la cátedra de Moisés. Así que, todo lo que os digan hacedlo y guardadlo; pero no hagáis según sus obras, porque ellos dicen y no hacen. Atan cargas pesadas y difíciles de llevar, y las ponen sobre los hombros de los hombres; pero ellos mismos no las quieren mover ni aun con el dedo. Más bien, hacen todas sus obras para ser vistos por los hombres. Ellos ensanchan sus filacterias y alargan los flecos de sus mantos. Aman los primeros asientos en los banquetes y las primeras sillas en las sinagogas, las salutaciones en las plazas y el ser llamados por los hombres: Rabí, Rabí.  
+> (Mateo 23:2-7)
+
+Poco antes de que los israelitas entraran a la tierra prometida, Moisés los desafió a hacer de la Palabra de Dios la principal motivación para todo lo que hicieran. Esta debía estar presente en todos los aspectos de su vida. Una respuesta acostumbrada a este desafío tomó la forma de **una filacteria**, que era una caja de cuero negra que contenía tiras de pergamino en el cual se habían escrito cuidadosamente a mano versículos de las Escrituras. Muchos judíos escrupulosos se ataban estas tiras en la frente y en el brazo izquierdo.
+
+Irónicamente, esta dedicación se había vuelto mayormente simbólica, y los fariseos mandaban a hacer filacterias más grandes de lo normal para que todo el mundo pudiera ver lo mucho que reverenciaban la Palabra de Dios. Pero el Señor no había dado su Palabra para que esta estuviera en la frente de alguien o atada en el brazo. **Quería que su pueblo la reverenciara, que la hiciera suya y que impulsara y determinara sus decisiones.**
+
+Otra costumbre que tenían los fariseos comenzó durante su peregrinación en el desierto. Dios le había dicho a Moisés:
+
+<!-- Page 12 -->
+
+> Habla a los hijos de Israel y diles que a través de sus generaciones se hagan flecos en los bordes de sus vestiduras y que pongan un cordón azul en cada fleco del borde. Los flecos servirán para que al verlos os acordéis de todos los mandamientos del SEÑOR, a fin de ponerlos por obra, y para que no vayáis en pos de vuestro propio corazón y de vuestros propios ojos.  
+> (Números 15:38, 39)
+
+Los fariseos habían hecho sus flecos extremadamente largos para mostrar lo seriamente que tomaban la ley de Moisés, y para acentuar su identidad como hijos del pacto. Pero **esta ostentación se había convertido en solo un medio para inflar su orgullo.**
+
+Los fariseos esperaban la venida de un Mesías triunfante. Su tradición les decía que este vendría de repente a su templo. En realidad, había llegado, pero no como ellos habían esperado. Jesús les había dicho de manera enérgica lo que probablemente es la censura más severa que se encuentra en toda la Biblia. **Ocho veces dice “ay”**, una exclamación utilizada para expresar una tristeza profunda y angustiosa sobre algo doloroso. **Siete veces los llama “escribas y fariseos, hipócritas”**. **Cinco veces los llama “ciegos”**. En esta lacerante denuncia, Jesús expresa de forma clara una lista detallada de pecados que habían sido evidentes durante años, pero que no habían sido denunciados por temor al castigo. Pero ya era suficiente. **El verdadero Mesías había venido para defender la verdad en el lugar donde la verdad estaba siendo pisoteada.**
+
+Las blancas y refulgentes paredes del templo resonaban con la voz de Jesús, cuando este remataba su acusación contra los fariseos, pronunciando un severo juicio.
+
+> “¡Ay de vosotros, escribas y fariseos, hipócritas! Porque edificáis los sepulcros de los profetas y adornáis los monumentos de los justos, y decís: ‘Si hubiéramos vivido en los días de nuestros padres, no habríamos sido sus cómplices en la sangre de los profetas’. Así dais testimonio contra vosotros mismos de que sois hijos de aquellos que mataron a los profetas. ¡Colmad también vosotros la medida de vuestros padres!  
+> “¡Serpientes! ¡Generación de víboras! ¿Cómo os escaparéis de la condenación del infierno? Por tanto, mirad;
+
+<!-- Page 13 -->
+
+> yo os envío profetas, sabios y escribas; y de ellos, a unos mataréis y crucificaréis, y a otros azotaréis en vuestras sinagogas y perseguiréis de ciudad en ciudad, de manera que venga sobre vosotros toda la sangre justa que se ha derramado sobre la tierra, desde la sangre del justo Abel hasta la sangre de Zacarias hijo de Berequías, a quien matasteis entre el santuario y el altar. De cierto os digo, que todo esto recaerá sobre esta generación.  
+> (Mateo 23:29-36)
+
+Los fariseos y los saduceos habrían echado mano de Jesús en el acto, de no haber sido por las miles de personas que lo apoyaban abiertamente. Durante las siguientes semanas, Jesús se movió con toda libertad por la ciudad y enseñó regularmente en el templo sin ser asesinado, gracias a su **inmensa popularidad**. Sus enemigos tendrían que atraparlo estando solo y desprevenido, pero para hacer eso necesitarían ayuda. **Necesitaban a alguien del círculo interno de Jesús.**
+
+---
+
+## LECCIONES ETERNAS PARA QUIENES HABLAN LA VERDAD
+
+Pocas armas contra el mal pueden rivalizar con **la espada de la verdad**. Sin embargo, a pesar de que ella está fácilmente al alcance de los suficientemente valientes para empuñarla, pocos lo hacen. Y no es de extrañarse, ya que el privilegio de esgrimir una herramienta tan poderosa implica un gran costo: **incomprensiones, falsas acusaciones, rompimiento de relaciones, soledad y frustraciones**. Además, defender lo correcto involucra con frecuencia luchas terribles con nuestras propias dudas y con nuestras autorecriminaciones. A veces, la decisión de tomar la espada de la verdad por el mango da como resultado una gran victoria, pero más a menudo el contrataque del mal aparece con ferocidad alarmante y daño permanente.
+
+A quienes han sido llamados a empuñar la espada de la verdad, les ofrezco **cuatro lecciones** a partir del ejemplo de Jesús:
+
+<!-- Page 14 -->
+
+**Primero**: conocer su misión le ayudará a mantenerse concentrado en el objetivo. Jesús sabía la razón que había tenido para venir a la tierra, y nunca permitió que la popularidad, el éxito, la oposición, las amenazas, y ni siquiera la disensión dentro de sus filas le distrajeran de ese objetivo. Él se mantenía resueltamente concentrado en esa misión, aunque sin descuidar a quienes estaban alrededor de él. Se esforzaba por comunicar la verdad de una manera sencilla, y con frecuencia repetía la invitación de que aceptaran la verdad. Pero jamás permitió que el fracaso de otros lo apartara de su meta.
+
+**Segundo**: enfrentar el mal exige confrontación. A pocas personas les gusta la confrontación, pero defender la verdad contra el mal lo demandará de manera inevitable. A veces, lo que se debe decir será difícil decirlo, y también difícil de oír por parte de los demás. Solo rara vez, quizás una sola vez en la vida, requerirá la confrontación la clase de severa censura que Jesús hizo a los fariseos. **Cuanto más grande sea el mal, más fuerte deberá ser la confrontación**. Por lo general, recomiendo indulgencia a menos que sea irresponsable una actitud indulgente; pero nunca recomiendo la indulgencia a expensas de la verdad.  
+*Esté preparado para decir la verdad claramente.*
+
+**Tercero**: la valentía en la lucha bien vale el riesgo. Defender la verdad exige valentía. Algunos se ofenderán, por lo que usted debe esperar ser criticado por la forma cuando la oposición no pueda encontrar ninguna falta en el fondo. Además, la valentía podrá exigir que el lenguaje fuerte esté acompañado de una acción fuerte. Es posible que tenga que dejar un empleo, ponerle fin a una relación, confrontar a un adversario poderoso, superar un temor, aguantar amenazas e incluso enfrentar alguna derrota. **Pero no se rinda**. Si usted defiende la verdad, solo lamentará su timidez después, pero nunca el haber actuado con valentía.
+
+**Cuarto**: decir la verdad no ofrece ninguna garantía de victoria. Vivimos en un mundo que no funciona según las normas divinas. El presente sistema del mundo castiga las buenas acciones y premia a quienes escogen el mal. Como leemos en *"The Present Crisis" en Poems* por James Russell Lowell:
+
+> "La verdad estará siempre en el patíbulo; la mentira, siempre en el trono".
+
+Lamentablemente, quienes hablan siempre la verdad son las víctimas de los abusos más inconcebibles. Por tanto, **sea realista. Sea valiente.** Su defensa de la verdad probablemente no será justificada siempre y de mane-
+
+<!-- Page 15 -->
+
+**Se forma la tormenta** – 193
+
+ra inmediata, o incluso jamás lo será mientras usted viva. Sin embargo, como sigue diciendo la última parte del pensamiento de Lowell:
+
+> "Pero ese patíbulo gobierna al futuro, y detrás de la ignota oscuridad está Dios en medio de las sombras, pendiente de los suyos".
+
+**Asir con firmeza la espada de la verdad, aunque es un sacrificio, ofrece en verdad una gran recompensa.** La verdad nos hace libres de sentimientos de culpa y de vergüenza. La verdad genera contentamiento, inspira confianza, estimula la creatividad, favorece la intimidad, fomenta la rectitud, inspira valor y hace libres a las personas. Pero, **lo más importante es que nos pone del lado de Dios**. Tenemos su promesa de que él recompensará abundantemente cualquier sacrificio que demande la verdad, si no en esta vida, con toda seguridad en la próxima.
