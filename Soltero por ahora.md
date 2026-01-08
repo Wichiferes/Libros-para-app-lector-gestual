@@ -674,3 +674,136 @@ Esto no necesariamente significa hacer algo explícitamente cristiano. Sí signi
 ## 100,000 OPORTUNIDADES
 
 Si esos ocho objetivos son nuestros objetivos, entonces existen 100,000 (y más) buenas formas de invertir nuestras 100,000 horas, y en la mayoría de ellas no seremos remunerados por proclamar a Cristo. El ministerio cristiano vocacional no es la única opción. De hecho, para la mayoría de nosotros, el ministerio que más exaltará a Jesús no será “el ministerio”. Tal vez tus 100,000 horas suplirán las necesidades de ministerios estratégicos, o te capacitarán para servir a la iglesia de maneras únicas (tecnología, comunicaciones, mantenimiento y más), o te rodearán de personas que aún no han creído con quienes puedes compartir el evangelio de una forma más natural. Mantente abierto a un llamado específico de Dios hacia el ministerio vocacional, pero no pienses que es la única forma de tener un ministerio efectivo, fiel y fructífero. Ya sea que escribamos sermones sobre un escritorio, vendamos escritorios, armemos escritorios, consigamos la madera, o que instruyamos a los hijos del carpintero para que sean mujeres y hombres piadosos, Dios puede utilizar a los solteros de manera única y poderosa para llevar a cabo Su más grande misión en el mundo.
+
+# **Parte 2**
+## **CUANDO DOS SOLTEROS SE CONOCEN**
+
+---
+
+&gt; *"Ya no existen los noviazgos. Al menos eso dicen los medios. Chicas: dejen de esperar que los chicos hagan algún intento formal por conquistarlas. No te quedes sentada esperando que algún chico te haga su prioridad, te comunique sus intenciones o te llame. La exclusividad y la intencionalidad son rituales antiguos, cosas del pasado, y esperanzas que no valen la pena."*
+
+Yo opino diferente. No estoy negando la existencia de esta nueva línea de pensamiento, y tampoco el hecho de que sea la tendencia actual y corrupta de nuestra cultura. Sencillamente está mal. Es una tragedia que una de nuestras más preciosas búsquedas, la de un compañero para toda la vida, ahora trate de lograrse por medio de los mensajes de texto, los "me gusta", los Snaps que te envían, el coqueteo ambiguo, y las "relaciones" superficiales y esporádicas. Está mal.
+
+Existe un Dios. Y este Dios creó al mundo y lo gobierna, incluyendo a los hombres, a las mujeres, a los impulsos biológicos que los unen, y a la institución que declara su unión como algo santo y seguro. Por tanto, solo Él tiene
+
+**derecho a determinar el propósito, los parámetros y los medios para llegar al matrimonio.** Si pudiéramos obtener plenitud de vida a través de la estimulación sexual, o si solo fuera cuestión de producir bebés, eso de "olvídate de la formalidad y solo ten sexo" podría satisfacer nuestros anhelos temporalmente y, por supuesto, llevar a la concepción. Pero Dios tenía mucho más en mente para *el romance* que simplemente orgasmos o procreación, y Su perspectiva debe ser la nuestra. Aunque las personas en el mundo esperen cada vez menos del otro durante un noviazgo, Dios no ha cambiado de opinión. Así que los solteros tienen que hacer un mayor esfuerzo en sus relaciones por preservar lo que el matrimonio debería reflejar y proveer.
+
+---
+
+## **DÓNDE VIENEN LAS BODAS**
+
+Tuve mi primera novia en el sexto grado, mi primer beso ese verano (con otra chica), y mientras estuve en la secundaria cambié de novia casi cada año. Desde muy joven buscaba afecto, seguridad e intimidad en las chicas, en lugar de buscarlo en Dios. Tuve novias antes que la mayoría, y más que la mayoría. Mi adolescencia se caracterizó por una serie de relaciones que eran demasiado serias para nuestra edad, que duraron demasiado y, por tanto, terminaron dolorosamente. Dije "te amo" demasiado pronto, y a demasiadas chicas. Mi
+
+**soltería pronto se convirtió en un recordatorio constante de que había cometido errores y perdido oportunidades.**
+
+(s)Quizá tú también has tenido dificultades en tus noviazgos, ya sea por las mismas razones o por otras. Puede que ya lo de encontrar a esa persona ideal te esté pareciendo una utopía. Quizás tienes tiempo deseando tener una relación o te ha gustado alguien, pero nunca has tenido la oportunidad. Tal vez todas las sugerencias y consejos que has recibido se han convertido en algo muy confuso, una serie de contradicciones y ambigüedades bien intencionadas. Es suficiente como para dejarte como un niño de ocho años que pregunta: "Mamá, ¿de dónde vienen las bodas?".(s)
+
+La visión del matrimonio que vemos en la Palabra de Dios —el hermoso y radical despliegue del amor infinito de Dios por los pecadores— hace que valga la pena tener noviazgos, y hacerlo bien. La visión del mundo puede darnos diversión, sexo e hijos, y hasta podría haber cierto tipo de compromiso o estabilidad, pero no puede llevarnos a Jesús, el único que nos da vida y a quien debemos imitar en nuestros matrimonios. Los amigos que disfrutan del sexo "sin compromiso" tendrán placer, pero nunca experimentarán el nivel de placer que ofrece el pacto matrimonial. La felicidad del matrimonio no se limita a lo físico ni se enfoca en él. El sexo debería estar acompañado de una profunda sensación de seguridad, de sentirse amado y aceptado por quien uno es, y del deseo de complacer sin la necesidad de impresionar.
+
+Cuando Dios diseñó la unión sexual entre un hombre y una mujer, hizo algo más satisfactorio que el acto mismo.
+
+**Aquellos que se entregan a sí mismos a una vida amorosa desenfrenada de encuentros románticos sin Cristo y sin compromiso, se están conformando.** Se están conformando con menos de lo que Dios quiere para nosotros, y con menos de lo que Él hizo posible al enviar a Su Hijo para rescatarnos y darle propósito a nuestras vidas, incluyendo nuestras vidas amorosas. Él quiere darnos más. **Más felicidad. Más seguridad. Más propósito.** Y eso solo es posible cuando ambos creen en Jesús y quieren seguirle. Al disfrutar de todo lo que Dios quiere darnos, estamos diciéndole al mundo que nos observa: "Si Dios te promete mucho más a través de una unión cristiana, no te conformes con lealtad, afecto, seguridad y experiencia sexual artificiales".
+
+---
+
+## **PRINCIPIOS PARA EL MATRIMONIO**
+
+Para aquellos que, al igual que yo, han dejado más huellas de errores que de paciencia y de buen juicio en su camino, tengan esperanza en el Dios que de forma real y misteriosa bendice nuestros caminos rotos y nos redime de ellos, y que puede transformar nuestra búsqueda del matrimonio para que sea nueva, pura, sabia y piadosa. A continuación he puesto algunos principios para el matrimonio. No es una lista exhaustiva, sino simples lecciones que he aprendido y espero
+
+**sean de bendición para ti, para tu novio(a), y para tu futuro**
+
+### **1. APRENDE QUÉ ES LO QUE HACE QUE UN MATRIMONIO VALGA LA PENA**
+
+En nuestros peores momentos, nuestros objetivos son secundarios y están distorsionados. Ya no queremos estar solos un viernes por la noche. Queremos publicar fotos lindas y artísticas con alguien en algún puente. Queremos poder disfrutar del sexo sin culpa. Queremos a alguien que nos diga que somos hermosos, divertidos, inteligentes y buenos en nuestros trabajos. Sin embargo, si el matrimonio nos ofreciera solo estas cosas, realmente no valdría la pena. Muchos intentarán negar esto, pero las estadísticas de divorcio son suficientes para establecer que el matrimonio pide más de nosotros de lo que pudimos haber imaginado el día de nuestra boda. Muchos de mis amigos casados dirían que lo que parecía divertido, hermoso e inquebrantable en el altar, no se sentía tan puro ni tan fácil a los pocos días de estar viviendo juntos. Sigue siendo bueno y hermoso, pero es costoso —demasiado costoso para quienes tienen objetivos
+
+**Antes de comenzar un noviazgo, debemos desarrollar una visión de lo que hace que el matrimonio valga la pena.** En primer lugar, ¿por qué queremos casarnos? Esta pregunta la responderemos ampliamente en el capítulo 11, pero es importante que cada uno de nosotros la conteste antes de comenzar un noviazgo. **El matrimonio vale la pena porque** Dios está en ese compromiso que haces para toda la vida con tu cónyuge. El punto del matrimonio es conocer a Dios, adorar a Dios, depender de Dios, mostrar a Dios y ser transformado a la imagen de Dios. Dios hizo al hombre y a la mujer a Su imagen y los unió, dándoles responsabilidades únicas para que se cuidaran entre ellos en esa hermosa unión imperfecta. **Lo que hace que el matrimonio valga la pena es que tú, tu cónyuge, y aquellos que te rodean puedan ver más de Dios y de Su amor en Jesús.** Si no estás experimentando eso con tu novio(a), termina la relación.
+
+**Si esa no es tu prioridad, entonces necesitas renovar tu mente.** Lo más probable es que tu relación y la forma en que estás evaluando a la otra persona no sean bíblicas.
+
+---
+
+### **2. REALMENTE ES TAN SIMPLE COMO DICEN**
+
+En una época donde las personas se casan cada vez más tarde, y más y más personas están tratando de conocer a alguien en línea, creo que necesitamos recordar que el matrimonio realmente es menos sobre compatibilidad y más sobre compromiso. Después de todo, nunca ha habido una relación menos compatible que la de un Dios santo y Su novia pecadora, y ese es el modelo que debemos seguir en nuestros matrimonios. Existe una razón por la que la Biblia no tiene un libro donde se explique cómo elegir un cónyuge. No es que Dios lo haya pasado por alto. Las cualidades son maravillosamente simples:
+
+1. **Debe creer en tu Dios:** "No formen yunta con los incrédulos" (2Co 6:14).
+2. **Debe ser del sexo opuesto:** "Por eso el hombre deja a su padre y a su madre, y se une a su mujer, y los dos se funden en un solo ser" (Gn 2:24, ver también Mt 19:4-6; Ef 5:24-32).
+
+(s)Por supuesto, hay otras cosas que tenemos que discernir en un noviazgo. Además de la atracción y la química, que no son de mayor importancia, la Biblia especifica algunos roles para la esposa y el esposo. El hombre debe proteger a su esposa y proveer para ella (Ef 5:25-29). La mujer debe ayudar y someterse a su marido (Gn 2:18; Ef 5:25-29). Los padres deben ser líderes que instruyan a sus familias en la Palabra de Dios (Ef 6:4). Tanto los padres como las madres deben amar y criar a sus hijos en la fe (Dt 6:7). Así que no solo se trata de encontrar a alguien del sexo opuesto que sea atractivo y que "ame a Jesús".(s)
+
+Dicho esto, muchos de nosotros debemos recordar que la persona que Dios dice que es perfecta para nosotros no es tan perfecta después de todo. **Todo el que se casa es un pecador.** Por tanto, la búsqueda de un cónyuge no consiste en hallar a alguien perfecto, sino en hallar a ese alguien imperfecto con quien puedas amar más a Jesús. Es un paso que damos por fe, con el propósito de parecernos más a Él y de juntos darlo a conocer a los demás. No importa quién sea el creyente con quien te cases, tarde o temprano te darás cuenta de que ya no son tan "compatibles" como pensaban en un principio, pero espero que te maravilles cada vez más del amor de Dios por ti en Jesús, y del inmenso privilegio de
+
+---
+
+### **3. BUSCA LA CLARIDAD MÁS QUE LA INTIMIDAD**
+
+El mayor peligro del noviazgo es entregarle partes de nuestros corazones y de nuestras vidas a alguien con quien no estamos casados. Es un gran riesgo, y muchos hombres y mujeres tienen heridas profundas y duraderas debido a que disfrutaron de una cercanía emocional o física sin que hubiera un verdadero compromiso. La intimidad barata se siente real en el momento, pero es un
+
+(s)La gran bendición de un matrimonio piadoso es que te permite tener una intimidad centrada en Cristo, mientras que la gran bendición de un noviazgo piadoso es que te permite tener una claridad cristocéntrica. La intimidad es más segura en el contexto del matrimonio, y el matrimonio es más seguro en el contexto de la claridad. El propósito del noviazgo es determinar si debemos casarnos, así que deberíamos enfocar nuestros esfuerzos en ello. En nuestra búsqueda de claridad, no hay duda de que desarrollaremos cierta intimidad, pero no debemos apresurarnos ni ser ingenuos. Sean claros y hablen de que, como cristianos, la intimidad antes del matrimonio es peligrosa, mientras que la claridad es increíblemente valiosa. En el capítulo 12 nos enfocaremos más en la búsqueda de claridad durante el(s)
+
+---
+
+### **4. NO INICIES UN NOVIAZGO HASTA QUE PUEDAS CASARTE**
+
+Si la meta de nuestros noviazgos es el matrimonio, ¿por qué muchos de nosotros empezamos a tener novios antes de poder casarnos? ¿Por qué tuve una novia cuando tenía doce años (y trece, y catorce, y quince, etc.)? A los doce años, estoy seguro de que creí que podría casarme con mi novia, con todo y que no habría podido casarme dentro de los próximos siete, ocho o diez años. Piénsalo. Si nos hubiéramos casado al terminar la universidad, habríamos tenido que esperar diez años para casarnos, asumiendo que esa era nuestra meta en la relación. Pero si somos honestos, la realidad es que no estamos pensando en el matrimonio durante la adolescencia. Lo que buscamos es atención, afecto, valor y seguridad. Y al buscar estas cosas y ponerlas por encima de Dios y del matrimonio (sutilmente al principio, y más abiertamente después), le damos la bienvenida al caos, a la confusión, al dolor y a la tentación que caracterizan a un noviazgo muy prematuro.
+
+(s)Puede que algunos hayamos nacido con el deseo de casarnos, pero ninguno nació preparado para casarse. Legalmente, no podemos casarnos hasta tener dieciocho años, excepto en Nebraska y en Mississippi (donde tienes que tener diecinueve y veintiún años, respectivamente). Más allá de la ley, está el asunto de nuestra falta de madurez y estabilidad. ¿Ha madurado lo suficiente nuestro compañero como para que podamos tener una idea de qué tipo de cónyuge será durante los próximos cincuenta años? ¿Qué tal nosotros mismos? ¿Seremos capaces de proveer financieramente para una familia? ¿Ha sido su fe en Jesús probada lo suficiente como para estar seguros de que es real? Algunos de ustedes odiarán este consejo —estoy seguro de que hubiera sido mi caso— pero todos tenemos que reconocer que es posible tener noviazgos mucho antes de poder casarnos. Y eso no significa que deberíamos hacerlo. Es casi imposible estar en un noviazgo con el matrimonio en mente si el matrimonio ni siquiera está en tu radar por el momento. Quizá ya sueñas con el matrimonio, pero ¿realmente podrías casarte pronto? Si no te has graduado de la universidad, es probable que no. Si pudiera retroceder en el tiempo (y desearía poder hacerlo), habría esperado hasta poder casarme para tener novia. Mi consejo —tómalo o déjalo— es esperar hasta que puedas casarte con esa persona dentro de los próximos dieciocho meses. No significa que tengan que casarse en ese lapso de tiempo. Lo importante es que podrían hacerlo, si Dios deja en claro que es Su voluntad y Su tiempo.(s)
+
+---
+
+### **5. ENCUENTRA A UN PROMETIDO(A) EN EL FRENTE DE BATALLA**
+
+En lugar de hacer del matrimonio tu misión, haz que tu misión sea la causa de Dios, el avance de Su evangelio, donde te encuentres, y busca a alguien que desee lo mismo. Si esperas casarte con alguien que ame a Jesús apasionadamente y quiera darlo a conocer, lo mejor es que te integres a una comunidad que esté comprometida en
+
+(s)hacer eso mismo. Únete a un grupo pequeño; no me refiero a un grupo de cristianos solteros, sino a uno que esté activo en la misión. Intégrate a un ministerio en tu iglesia que busque alcanzar a los perdidos de tu comunidad. Enfócate en la cosecha, y seguro encontrarás a otros que estén
+
+No estoy diciendo que debemos servir porque podríamos encontrar el amor. Ese tipo de servicio egoísta no honra a Dios. No, simplemente significa que, si estamos buscando un tipo de persona en particular, existen lugares específicos donde esas personas viven, sirven y adoran juntos. Involúcrate en una comunidad como esa, sirve, y espera que Dios abra puertas para un(s)
+
+---
+
+### **6. NO PERMITAS QUE TU MENTE SE CASE ANTES DE QUE TÚ PUEDAS CASARTE**
+
+Aunque esto parezca más común entre las mujeres, estuve soltero el tiempo suficiente, y rodeado de otros solteros, como para saber que no es un problema exclusivo de las mujeres. La meta de todo romance que sea realmente cristiano debería ser el matrimonio, así que no debe sorprendernos que nuestros sueños y expectativas —nuestros corazones— se adelanten a todo lo demás. Y es que no se nos hace difícil imaginarnos cómo serían nuestros hijos, o a dónde iríamos de vacaciones juntos, o cómo organizaríamos los días festivos con la familia, o qué tipo de casa podríamos comprar. Y tal como el sexo, todas estas cosas podrían ser muy buenas, seguras y hermosas, pero en
+
+(s)el contexto de un pacto. Satánás quiere ayudarnos sutilmente a que hagamos ídolos del matrimonio y de la familia. "Él me dijo que me amaba". "Ella me dijo que nunca me dejaría". Son frases que nos parecen invaluables, pero que no siempre son verdad. Frecuentemente son dichas con buenas intenciones, pero sin el anillo —y sin el anillo, los resultados pueden ser devastadores. Ve despacio en cada aspecto de la relación— emocional, espiritual y físico. Guarda tu corazón e imaginación de ir más allá de tu compromiso actual.(s)
+
+---
+
+### **7. LÍMITES SON NUESTROS AMIGOS**
+
+Entre cristianos, es posible que la pregunta más común sobre el noviazgo sea: "¿Hasta dónde puedo llegar antes del matrimonio?". El hecho de que continuemos haciendo esa pregunta sugiere que todos estamos de acuerdo en que debemos establecer algunos límites, y que esos límites no están bien definidos en la mayoría de los casos. Si estás buscando el matrimonio, y te está yendo bien, experimentarás tentaciones —muchas tentaciones, y cada vez más. Es posible que el pecado sexual sea el arma preferida del diablo para corromper las relaciones cristianas. Si no reconocemos a nuestro enemigo ni lo enfrentamos, nos encontraremos preguntándonos cómo caímos tan fácilmente. Uno de nuestros mejores aliados en esta batalla serán los límites que establezcamos para mantenernos puros.
+
+(s)Aunque la intimidad espontánea se ve muy bien en las películas románticas y se siente increíble en el momento, al final solo nos trae vergüenza, remordimiento y desconfianza. Trata de hablar del contacto físico antes de que ocurra. Cambia la excitación por la confianza, y la sorpresa por claridad y seguridad. Tomen sus decisiones en oración antes de actuar. Los límites son necesarios porque en el camino hacia el matrimonio y su consumación, el apetito por la intimidad va creciendo mientras más lo alimentes. Así nos hizo Dios. El contacto físico conduce a más contacto físico. Estar solos en ciertas situaciones conduce a una tentación abrumadora. Incluso orar juntos o hablar por horas y horas en el teléfono pueden crear sobredosis prematuras de intimidad.
+
+Si somos honestos, preferimos errar yendo demasiado lejos en la relación que esperando demasiado para dar el siguiente paso. Sin embargo, te será muy complicado encontrar matrimonios que se arrepientan de haber puesto límites en su noviazgo, y te será muy fácil encontrar aquellos que desearían haber puesto más. Como seguidores de Cristo, debemos ser muy cuidadosos y vigilantes. Los límites nos protegen y nos ayudan a construir la confianza mutua. Al establecer límites para ambos, pequeños y grandes, y comprometerse a respetarlos, desarrollarán patrones de confianza que beneficiarán la intimidad, la fidelidad al pacto, y la toma de decisiones, si es que Dios les guía hacia el matrimonio. Hablaremos más sobre la pureza sexual en el capítulo 13, y más sobre los límites en el capítulo 14.(s)
+
+---
+
+### **8. EXPÓNTE A SU COMUNIDAD DE FORMA TEMPRANA**
+
+La idea del noviazgo es discernir de la mejor manera posible la habilidad de una persona para cumplir junto a ti la visión y el propósito de Dios para el matrimonio. Aunque la decisión final recaiga sobre ti, quizá no seas la mejor persona para evaluar cada punto. Tal como en toda área de nuestra vida cristiana, necesitamos del cuerpo de Cristo cuando consideramos con quién salir, cómo conducirnos durante el noviazgo, y con quién nos casamos. Aunque parezca raro o poco conveniente, siempre es provechoso tener la perspectiva de personas que nos conocen, nos aman y que tienen gran esperanza para nuestro futuro. Puede llevar a conversaciones difíciles o a profundos desacuerdos, pero nos obligará a lidiar con cosas que no podíamos o no queríamos ver por nosotros mismos. Encontraremos seguridad en la abundancia de los consejos (Pr 11:14 RVC). Pídele a otros que observen tu relación. Pasa tiempo con otras personas, casados o solteros, que estén dispuestos a señalar lo bueno, lo malo y lo feo. Hablaremos más sobre la comunidad y la rendición de cuentas en el capítulo 15.
+
+---
+
+### **9. HAZ QUE TU NOVIAZGO SEA MISIONAL**
+
+No, no te estoy animando a que salgas con personas incrédulas. Cuando digo *noviazgo misional*, me refiero a uno que muestre y promueva la fe en Jesús y Sus buenas noticias, uno que vaya de acuerdo al evangelio y se lo muestre al mundo que les observa. La idea es que con nuestros noviazgos radicales, en los cuales confrontamos los paradigmas del mundo y su búsqueda de placer con nuestro sacrificio, desinterés e intencionalidad, ganemos discípulos para Cristo. Los hombres y mujeres del mundo quieren muchas de las cosas que tú deseas: afecto, compromiso, conversaciones, estabilidad y sexo. Si tu noviazgo honra a Dios, la gente verá que el fundamento de tu vida y de tu relación es mucho más firme que todo lo que ellos conocen. Verán algo más profundo, más fuerte y más significativo entre tú y tu
+
+(s)¿Crees que las personas que te rodean conocen y aman más a Jesús porque ustedes están juntos? ¿Ven la gracia y la verdad de Dios obrando en ti y en tu relación? ¿Están pensando intencionalmente en cómo bendecir a sus amigos y familiares, señalándoles el camino hacia Cristo? Mientras que el mundo sigue despreciando los noviazgos, tu relación puede ser una imagen de tu fidelidad a Cristo y un llamado a(s)
+
+---
+
+### **10. PON TU ESPERANZA EN JESÚS MÁS QUE EN EL MATRIMONIO**
+
+En medio de tu espera o de tu noviazgo, pon tu esperanza en Jesús más que en el matrimonio. Primero, hazlo una realidad. Invierte mucho tiempo satisfaciendo tu alma al meditar en todo lo que Dios ha llegado a ser para ti en
+
+(s)Después, cuando parezca que el único tema de conversación es tu vida amorosa, ten la valentía de decírselo a los demás. 
+"¿Alguna mujer en tu vida últimamente?". "¿Ya son novios?". "La verdad es que es una gran chica. ¿Qué piensas sobre ella?". "¿Estarías dispuesta a salir con el hermano del primo de mi esposa?". Utiliza este tipo de conversaciones para mostrarles al Esposo que compró tu eterna felicidad, en la vida o en la muerte, en enfermedad o en salud, en el matrimonio o en la(s)
+
+---
+
+## **UNA OPORTUNIDAD PARA TENER UN NOVIAZGO DIFERENTE**
+
+¿Quiere esto decir que no hay riesgos en este tipo de noviazgos? No. ¿Evitará que salgas herido o decepcionado? No. ¿Garantizará que nunca pasarás por otra ruptura? No. Pero, por la gracia de Dios, pueden protegerte de un dolor más profundo y de fracasos devastadores. Mi oración es que estos principios te preparen para amar a tu novio(a) (y a tu futuro cónyuge) de una forma que muestre la hermosura de la verdad y el poder del evangelio. Si eres como yo, puede que ya hayas cometido muchos errores. Es posible que estés cometiendo uno en este momento. Debes estar dispuesto a tomar decisiones difíciles, grandes y pequeñas, para buscar el matrimonio de manera correcta. Ya sea que finalmente se casen o no, se lo agradecerán mutuamente en el
+
+&lt;footer&gt;154&lt;/footer&gt;
