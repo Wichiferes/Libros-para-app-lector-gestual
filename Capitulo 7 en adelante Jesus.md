@@ -1091,3 +1091,266 @@ ra inmediata, o incluso jamás lo será mientras usted viva. Sin embargo, como s
 > "Pero ese patíbulo gobierna al futuro, y detrás de la ignota oscuridad está Dios en medio de las sombras, pendiente de los suyos".
 
 **Asir con firmeza la espada de la verdad, aunque es un sacrificio, ofrece en verdad una gran recompensa.** La verdad nos hace libres de sentimientos de culpa y de vergüenza. La verdad genera contentamiento, inspira confianza, estimula la creatividad, favorece la intimidad, fomenta la rectitud, inspira valor y hace libres a las personas. Pero, **lo más importante es que nos pone del lado de Dios**. Tenemos su promesa de que él recompensará abundantemente cualquier sacrificio que demande la verdad, si no en esta vida, con toda seguridad en la próxima.
+
+
+# **Capítulo catorce: Juicios finales y tortura de Jesús**
+
+En el año 26 d.C., Tiberio se retiró a la isla de Capri. Desde allí, gobernaría su imperio por medio de Lucio Sejano, a quien había dejado en Roma para que se ocupara de los asuntos diarios del gobierno. Sejano había trabajado duro para ganarse esa posición. Había tomado un pequeño régimen de la escolta imperial y lo había transformado en una guardia pretoriana, que se convirtió en un poderoso e influyente brazo del gobierno de Roma. Además, se encargó hábilmente de eliminar a cualquiera que pudiera ser un problema en su ascenso al poder, entre ellos a Druso, el propio hijo del emperador.
+
+Poco después de convertirse en el líder de hecho de Roma, Sejano le dio a su amigo, Poncio Pilato, un cargo que se había convertido en uno de los más codiciados del imperio: **Procurador de Judea**. El cargo tenía grandes riesgos, pero también grandes recompensas políticas para quien hiciera bien el trabajo. Sejano necesitaba alguien fuerte, aun hombre en el que pudiera confiar para dar estabilidad a esta crítica y volátil región.
+
+El historiador **Filon de Alejandria** en su libro *The Works of Philo: Complete and Unabridged*, describió a Pilato como un hombre de "manera de ser muy inflexible, muy inmisericorde y también muy obstinado". La manera de ser de Pilato le había sido de ayuda en cargos anteriores, pero casi acabó con su carrera poco después de asumir el gobierno de Judea. Él, al igual que la mayoría de los romanos, no comprendía los problemas especiales que acompañaban el gobernar a los judíos.
+
+No mucho después de su llegada, le envió a Jerusalén el claro mensaje de que había un nuevo jefe en la ciudad, y de que no sería el pusilánime que habían sido otros gobernantes. Envió un ejército desde su cuartel general en Cesarea para que este pasara el invierno en Jerusalén, con la orden de que llevaran la imagen del César en sus escudos y que los exhibieran en las plazas públicas, tal como sucedía en todas las demás partes del imperio. Otros procuradores habían respetado la ley judía evitando el despliegue de cualquier "imagen de figura alguna" (Deut. 4:15-18).
+
+Cuando los líderes de Jerusalén se dirigieron en masa a Cesarea para llevar a cabo una protesta, Pilato se vio envuelto en un difícil dilema. Retirar las imágenes no sería solo una muestra de debilidad, sino que también podía ser un insulto al César, quien debía ser adorado como un dios. Pero, como mantener la paz era su responsabilidad principal, y como los líderes judíos no estaban dispuestos a regresar a Jerusalén, Josefo, en su libro *The Works of Josephus: Complete and Unabridged*, describió la manera cómo terminó la confrontación:
+
+&gt; "En el sexto día [de la protesta] ordenó a sus soldados [que tuvieran sus armas escondidas], cuando él viniera a sentarse en el tribunal cuyo asiento estaba preparado en un lugar abierto de la ciudad, de tal manera que este ocultaba al ejército, el cual se había preparado para aplastarlos. Cuando los judios le hicieron de nuevo la petición, Pilato dio una señal a los soldados de que lo rodearan a él, y de que amenazaran a la gente diciéndole que su castigo no sería otro que la muerte inmediata, a menos que dejaran de causarle problemas y se marcharan a Jerusalén. Pero los judíos se lanzaron al suelo, ofreciendo sus cuellos desnudos, y diciendo que morirían gustosamente en vez de transgredir sus leyes; la firme resolución de no permitir que sus leyes fueran violadas afectó tan profundamente a Pilato, que ordenó de inmediato que las imágenes fueran regresadas de Jerusalén a Cesarea."
+
+Otro enfrentamiento parecido a este terminó convertido en un baño de sangre para los judíos, quienes pocos días después enviaron una carta a Capri pidiendo la destitución de Pilato. En esos días, Tiberio había descubierto que Sejano había sido el responsable de la muerte de su hijo, y lo hizo ejecutar sin tardanza. Con los ciudadanos de Roma arrastrando el cadáver de Sejano por las calles de la ciudad, celebrando el hecho, Pilato se sintió de repente que se había quedado sin un amigo en el mundo.
+
+&lt;footer&gt;229&lt;/footer&gt;
+
+---
+
+## **EL CUARTO JUICIO**
+**(Mateo 27:11-14; Marcos 15:2-5; Lucas 23:1-7; Juan 18:28-38)**
+
+Por estar la Pascua judía en plena marcha, y Jerusalén colmada con casi diez veces su población normal, Pilato fijó su residencia en el pretorio para garantizar la ley y el orden. Sin embargo, se sorprendió al oír que los judíos le estaban pidiendo a gritos una audiencia durante la fiesta. La preocupación de estos por la pureza ritual no les permitía entrar al edificio romano, por lo que tendría que recibirlos en el patio, que casi se había llenado al máximo. Más de setenta líderes religiosos, ataviados con sus mejores ropas, estaban parados formando un semicírculo alrededor de un prisionero encadenado. La hinchazón y la sangre seca que había en el rostro del hombre, y la enfurecida multitud que había detrás de los líderes, le permitió saber al procurador que debía tomar con seriedad la visita de esa temprana hora de la mañana.
+
+&gt; —¿Qué acusación traéis contra este hombre?
+
+Le respondieron y dijeron:
+
+&gt; *"Si este no fuera malhechor, no te lo habríamos entregado."*
+
+Entonces Pilato les dijo:
+
+&gt; —Tomadle vosotros, y juzgadle según vuestra ley.
+
+Los judíos le dijeron:
+
+&gt; —"*A nosotros no se nos permite dar muerte a nadie.*"
+
+**Juan 18:29-31**
+
+Los cargos originales de herejía y blasfemia eran de naturaleza religiosa, y los romanos eran asombrosamente flexibles cuando se trataba de religiones. Ellos tenían cientos de dioses, a diferencia de los tercos judíos que insistían en que solo había uno. Pero, a menos que las creencias locales impidieran el flujo de dinero a los cofres de Roma, o que las disputas amenazaran la estabilidad de la región, los procuradores por lo general preferían no intervenir.
+
+Los líderes judíos sabían que a los romanos solo les interesaba Roma, por lo que tendrían que presentarle a Pilato acusaciones que le mostraran a Jesús como una amenaza para el estado.
+
+&gt; "Y comenzaron a acusarle, diciendo: *Hemos hallado a este que agita a nuestra nación, prohibe dar tributo al César, y dice que él mismo es el Cristo, un rey.*"
+
+Entonces Pilato entró otra vez al pretorio, llamó a Jesús y le dijo:
+
+&gt; —¿Eres tú el rey de los judíos?
+
+Jesús le respondió:
+
+&gt; —¿Preguntas esto de ti mismo, o porque otros te lo han dicho de mí?
+
+Pilato respondió:
+
+&gt; —¿Acaso soy yo judio? Tu propia nación y los principales sacerdotes te entregaron a mí. ¿Qué has hecho?
+
+Contestó Jesús:
+
+&gt; —*Mi reino no es de este mundo. Si mi reino fuera de este mundo, mis servidores pelearían para que yo no fuera entregado a los judíos. Ahora pues, mi reino no es de aquí.*
+
+Entonces Pilato le dijo:
+
+&gt; —¿Así que tú eres rey?
+
+Jesús respondió:
+
+&gt; —*Tú dices que soy rey. Para esto yo he nacido y para esto he venido al mundo; para dar testimonio a la verdad. Todo aquel que es de la verdad oyeme voz.*
+
+Le dijo Pilato:
+
+&gt; —¿Qué es la verdad?
+
+**Juan 18:33-38**
+
+La verdad. Seamos honestos; el mundo romano no era muy diferente al de hoy en día. Pilato no había llegado al lugar de poder y prominencia por actuar siempre con la verdad, sin importar a dónde le condujera esta. Es que cuando la verdad se convierte en sierva de la conveniencia, el éxito no es ya un asunto de buscar la luz y de andar en ella, sino de descubrir cuánta sombra ofrecerá la mejor protección para no tener que vivir con honestidad. Elegir entre la verdad y la conveniencia es la manera de escoger qué reino estará uno dispuesto a servir.
+
+Jesús le presentó a Pilato una opción, la misma opción que nos ofrece a nosotros: Negar la verdad que uno conoce para conservar el lugar en el reino de Tiberio, o andar en la luz de la verdad y recibir recompensas ocultas en el reino de Dios. Evidentemente, los golpes que había alrededor de los ojos de Jesús no hacían especialmente atractiva la última opción.
+
+Habiendo dicho esto, salió de nuevo a los judíos, y les dijo:
+
+&gt; —Yo no hallo ningún delito en él.
+
+**Juan 18:38**
+
+Pilato probablemente se preguntó por qué estos dilemas parecían perseguirlo siempre, a pesar de sus mejores esfuerzos por mantenerse neutral. Con Sejano muerto, era probable que él no sobreviviera a otra controversia. Pero frente a él estaba parado un hombre que, claramente, no era culpable de ningún delito contra Roma, y una desenfrenada multitud que insistía en que era una seria amenaza para Tiberio. Los judíos habían apelado a Roma muchas veces, y siempre habían tenido éxito. Y la última carta que él había recibido de Tiberio dejaba claro que lo mejor sería que respetara la sensibilidad religiosa de los judíos, o sufriría el fin de su carrera.
+
+Pero ellos insistían, diciendo:
+
+&gt; "Alborota al pueblo, enseñando por toda Judea, comenzando desde Galilea hasta aquí."
+
+**Lucas 23:5**
+
+Mientras a Pilato le daba vueltas en la cabeza el insufrible dilema político, una sola palabra por encima de los gritos de la gente le ofreció una esperanza: **Galilea**. ¡Jesús era de Galilea! No lejos del pretorio, **Herodes Antipas**, el tetrarca de Galilea, había fijado residencia en Jerusalén para la celebración de la Pascua. La aristocracia judía lo reconocía como líder. Jesús era de su jurisdicción. Era la manera perfecta de pasarle el problema a otro.
+
+&lt;footer&gt;230&lt;/footer&gt;
+
+---
+
+## **EL QUINTO JUICIO**
+**(Lucas 23:8-12)**
+
+Herodes Antipas era hijo de Herodes el Grande, y había heredado muchas de sus cualidades, entre ellas la del gran amor por las construcciones y una manera de ser particularmente cruel. A pesar de su impresionante lista de edificaciones que había hecho y de las ciudades que había fundado, incluida una importante ciudad en honor a Tiberio (Tiberiades), Herodes Antipas era una caricatura del libertinaje de Roma. Su gobierno consistía en su mayor parte de falta de moderación y de fiestas frívolas. Por ejemplo, alejó a su esposa y luego se casó con Herodias, la mujer de su hermano. Sus acciones no solo eran una violación al pacto matrimonial, sino además un desprecio a la ley judía, lo que le atrajo las críticas de Juan el Bautista. Después de esto, en una de las fiestas de Herodes, "la hija de Herodias danzó en medio, y agradó a Herodes, por lo cual él se comprometió bajo juramento a darle todo lo que pidiese" (Mat. 14:6, 7). Ella le pidió la cabeza de Juan el Bautista en un plato, lo cual Herodes cumplió sin tardanza.
+
+Herodes equilibraba sagazmente sus vínculos con Roma con la apariencia de lealtad a su pueblo. En varias de las controversias que tuvo con Pilato, había defendido a los líderes judíos y había tenido éxito en mantener a raya la ira de Tiberio. Esto lo convertía en un importante y potencial aliado de Pilato, quien necesitaba un amigo influyente. Pilato sabía que Herodes "hacía mucho tiempo que deseaba verle (a Jesús); pues había oído muchas cosas de él y tenía esperanzas de que le vería hacer algún milagro" (Luc. 23:8). Por tanto, con un gesto no muy diferente a una divertida broma pesada, envió al "Rey de los judíos" a Herodes para que este lo juzgara.
+
+&gt; "Herodes le preguntaba con muchas palabras, pero Jesús no le respondió nada. Estaban allí los principales sacerdotes y los escribas, acusándole con vehemencia."
+
+**Lucas 23:9,10**
+
+Si era un espectáculo lo que Herodes quería, quedó decepcionado. Jesús estaba consciente de un hecho fundamental de la vida: **De nada sirven las palabras a personas que no tienen ningún deseo de saber la verdad**. Jesús se había referido un tiempo atrás a "echar perlas delante de los cerdos" (Mat. 7:6). Los enemigos de Jesús le habían lanzado acusaciones, mientras Herodes trataba de que hiciera milagros, pero Jesús se mantuvo callado. Finalmente, Herodes y su cortejo se cansaron del juego y enviaron a Jesús de vuelta a Pilato. Aunque Herodes no quiso tomar para sí el problema que tenía Pilato, correspondió a la broma del procurador devolviéndole a Jesús vestido con un manto real de su colección personal.
+
+El resultado de la broma compartida por los dos hombres fue que Pilato se ganó al aliado que tanto necesitaba. Pero Jesús seguía siendo su problema.
+
+&lt;footer&gt;231&lt;/footer&gt;
+
+---
+
+## **EL SEXTO JUICIO**
+**(Mateo 27:15-26; Marcos 15:6-15; Lucas 23:13-25; Juan 18:39-19:16)**
+
+En un calabozo no lejos del tribunal del pretorio, un hombre esperaba ser ejecutado. Uno se pregunta cómo fue que le dieron el nombre de **Barrabás**. Su nombre era absurdo, porque significaba "hijo de un padre". Quizás se trataba de un apodo, de un inteligente "Perico de los Palotes" que había adoptado como nombre para proteger a su familia cuando se unió a una banda de matones, de la que al final llegó a ser su jefe. Para el momento que fue apresado, se había convertido en un famoso asesino, en la clase de criminal que a los romanos les encantaba ejecutar utilizando el procedimiento más atroz posible: **la crucifixión**.
+
+Hombres como Barrabás les daban a los procuradores romanos y a los líderes religiosos la poco frecuente oportunidad de estar de acuerdo en algo. Mientras estos bandoleros no fueran atrapados, sus actividades eran un gran motivo de molestia para los romanos, para alegría de todos los judíos. Sin embargo, estos forajidos despreciaban igualmente a los saduceos, que cooperaban con Roma. En consecuencia, el arresto de un sedicioso se convertía en una oportunidad para que los líderes judíos fingieran apoyo ante la ocupación romana.
+
+Esto le dio a Pilato una idea. Una costumbre de sus predecesores había sido dejar en libertad a un preso en honor a la festividad judía. Si él los obligaba a elegir entre un hombre inocente y un culpable confeso de numerosos delitos contra Roma, ellos sin duda no apoyarían a un verdadero enemigo del estado. El escoger a un famoso revoltoso los pondría del lado del César en el asunto. Pero Pilato subestimó el odio que le tenían a Jesús. Cuando les hizo la oferta de que eligieran entre los dos, ellos gritaron, para su sorpresa:
+
+&gt; "¡No a éste, sino a Barrabás!"
+
+**Juan 18:40**
+
+La estratagema de Pilato no solo no pudo librarlo del problema político, sino que lo enredó aún más. Reacio a perdonar a un notorio asesino, Pilato decidió hacer azotar a Jesús para evitarle la cruz, esperando que el "dejarlo medio muerto" satisfaría la sed de sangre de los líderes judíos.
+
+Los azotes consistían en el uso de un **flagrum**, que era un látigo que tenía largas puntas de cuero. Las tiras de cuero podían simplemente estar anudadas, pero si el **lictor**, que era un experto en el arte de la tortura, quería causar más daño, podía usar unas que tenían pequeñas pesas metálicas o incluso pedacitos de hueso de ovejas trenzados en las tiras. Los doctores W. D. Edwards, W. J. Gabel y F. E. Hosmer, en su artículo "On the Physical Death of Jesus Christ", del *The Journal of the American Medical Association* dicen que:
+
+&gt; *"Las puntas de hierro causaban heridas profundas, y las correas de cuero con huesos de ovejas arrancaban la piel y el tejido subcutáneo. Entonces, a medida que continuaban los azotes, los golpes desgarraban los músculos esqueléticos, haciendo que brotara la carne sangrante."*
+
+Según el médico Frederick T. Zugibe, en *The Crucifixion of Jesus: A Forensic Inquiry*, el resultado normal de los azotes era:
+
+&gt; *"costillas fracturadas y severos golpes y laceraciones pulmonares, con el sangrado de la cavidad torácica y el neumotórax (colapso) parcial o total de los pulmones."*
+
+Los romanos eran expertos en el arte de la tortura, y sabían exactamente cómo azotar a un hombre al máximo sin causarle la muerte. El procedimiento, por lo general, ponía a la víctima en estado de shock en menos de cinco minutos, y luego tardaba meses en curarse.
+
+Mientras el lictor ataba las muñecas de Jesús a un poste de madera, toda la multitud llenó la galería para ser parte del humillante espectáculo. Abucheaban y lanzaban insultos, mientras el lictor escogía su instrumento, retrocedía y descargaba el látigo contra la espalda de Jesús. La flagelación judaica limitaba el número de azotes a treinta y nueve, y estaba restringida a la espalda y los hombros, pero para los lictores romanos no había ninguna regla. Para ellos ninguna parte del cuerpo —espalda, peínas, pecho, abdomen, cara— estaba exenta, y los azotes podían continuar todo el tiempo que sirviera de entretenimiento a la gente. Si la víctima se desmayaba, el lictor esperaba hasta que volviera en sí, para reanudar la sádica tortura.
+
+De acuerdo con los médicos, la mayoría de las víctimas comenzaba a quedar en estado de shock después de algunos minutos de estar recibiendo azotes continuos, por lo que muy probablemente el lictor daba a Jesús tres o cuatro azotes de una vez, y luego dejaba que la gente lo ridiculizara y humillara. En el caso de él, los soldados hicieron una **corona de espinas** y se la hundieron en la cabeza. Yo tengo una réplica de esa corona, que me regaló un grupo de amigos que regresaron de Israel. Las espinas son de dos y tres pulgadas de largo, rematadas en afladas puntas, como agujas. Hasta el día de hoy, es peligroso manipular esas puntas.
+
+Después de la humillante coronación hubo más azotes. Sobre los desollados hombros de Jesús lanzaron la capa de un oficial como manto real, le pusieron en las manos una caña de medir como cetro, y se inclinaban ante él con escarnecedora reverencia. "¡Salve, rey de los judíos!" Los azotes continuaron. Después lo hicieron desfilar por el patio de la fortaleza, mientras le lanzaban objetos desde la galería. Entonces le golpearon la cabeza con la caña de medir y lo azotaron más. Por último, le dieron puñetazos, y desvergonzadamente le escupieron el rostro antes de enviarlo de nuevo a Pilato, sangrando, temblando por el shock, casi sin poder mantenerse en pie por sus propias fuerzas, y llevando puesta todavía la terrible corona de espinas.
+
+En menos de una hora, Jesús había sido devuelto al pretorio. Después de todo lo que le habían hecho, el procurador estaba seguro de que la gente estaría ya satisfecha. Entonces empujó a Jesús, que estaba completamente humillado y que casi no podía mantenerse en pie, hacia la plataforma, diciendo con orgullo:
+
+&gt; "¡He aquí el hombre!"
+
+Pero, en vez de aplaudir lo que para él era una concesión muy generosa, la multitud comenzó a gritar:
+
+&gt; "¡Crucificadle! ¡Crucificadle!"
+
+El irritado Pilato entonces hizo un gesto con la mano, y encogiéndose de hombros dijo:
+
+&gt; "Tomadlo vosotros y crucificadle, porque yo no hallo ningún delito en él."
+
+**Juan 19:6**
+
+Luego se dio media vuelta para retirarse, pero antes de que diera unos pocos pasos, los líderes dijeron algo que lo paró en seco:
+
+&gt; "Nosotros tenemos una ley, y según nuestra ley él debe morir, porque se hizo a sí mismo Hijo de Dios."
+
+**Juan 19:7**
+
+Antes de esto, su esposa le había enviado una nota que decía:
+
+&gt; "No tengas nada que ver con ese justo, porque hoy he sufrido muchas cosas en sueños por causa de él."
+
+**Mat. 27:19**
+
+Los romanos eran supersticiosos y asombrosamente amplios cuando se trataba de apaciguar a un dios, cualquiera que este fuera. Por lo general, preferían prevenir que lamentar cuando se trataba de los dioses, y le prestaban atención a cualquier augurio que pudiera indicarles que podían recibir algún daño. Por lo menos, Pilato tomó con seriedad los temores de su esposa y decidió interrogar a Jesús otra vez:
+
+&gt; —¿De dónde eres tú?
+
+Pero Jesús no le dio respuesta. Entonces le dijo Pilato:
+
+&gt; —¿A mí no me hablas? ¿No sabes que tengo autoridad para soltarte y tengo autoridad para crucificarte?
+
+Respondió Jesús:
+
+&gt; —*No tendrías ninguna autoridad contra mí, si no te fuera dada de arriba. Por esto, el que me entregó a ti tiene mayor pecado.*
+
+**Juan 19:9-11**
+
+Cuanto más trataba Pilato de zafarse del problema, más se enredaba políticamente. Convencido de que Jesús era inocente, temeroso del mal presagio de su esposa, y a estas alturas consciente de las dimensiones cósmicas de su decisión, trató una vez más de poner en libertad a Jesús. Pero los líderes religiosos jugaron el as que escondían en la manga:
+
+&gt; "Si sueltas a este, no eres amigo del César. Todo aquel que se hace rey se opone al César."
+
+**Juan 19:12**
+
+Eso fue suficiente. Pilato no necesitaba oír más. Cada vez que los líderes religiosos habían recurrido a Roma, la ira de Tiberio había puesto a temblar a Pilato por su carrera. El recuerdo de la pérdida del estatus de "amigo del César" por parte de Herodes el Grande, y su posterior degradación inquietaban sin duda al ambicioso político. Con su amigo Sejano ejecutado por traición, seguramente no sobreviviría a otra controversia. Además, su nueva amistad con Herodes Antipas prometía darle un vuelco a todo.
+
+&gt; "Cuando Pilato oyó estas palabras, llevó a Jesús afuera y se sentó en el tribunal, en el lugar llamado El Enlosado, y en hebreo Gábata. Era el día de la Preparación de la Pascua, y como la hora sexta. Entonces dijo a los judíos: *He aquí vuestro rey.*"
+
+**Juan 19:13-15**
+
+Pero ellos gritaron diciendo:
+
+&gt; "¡Fuera! ¡Fuera! ¡Crucificadle!"
+
+Pilato les dijo:
+
+&gt; —¿He de crucificar a vuestro rey?
+
+Respondieron los principales sacerdotes:
+
+&gt; "*No tenemos más rey que el César!*"
+
+Desde el momento en que los líderes trajeron a Jesús a Pilato, la verdad y el poder entablaron una lucha por dominar el corazón de Pilato, pero al final, éste sacrificó la verdad en el altar de su dios. Se levantó de su asiento, se lavó las manos frente a la multitud, y dijo:
+
+&gt; "¡Yo soy inocente de la sangre de este! ¡Será asunto vuestro!"
+
+A lo cual los líderes respondieron:
+
+&gt; "¡Su sangre sea sobre nosotros y sobre nuestros hijos!"
+
+**Mat. 27:24,25**
+
+En la hora siguiente, Jesús tomaría el lugar de Barrabás en la cruz.
+
+&lt;footer&gt;232&lt;/footer&gt;
+
+---
+
+## **REACCIONES**
+
+Los juicios hechos a Jesucristo ya han quedado en el pasado. Las arenas del tiempo se han llevado los detalles. Los rostros de las personas se han desvanecido del recuerdo. Sus nombres han quedado reducidos a simples iconos a los cuales la historia y el folclor han añadido clichés. Pero yo le desafío a usar su imaginación y ponerse en sus zapatos para entender los dilemas intelectuales, prácticos y morales que enfrentaron esas personas. Ellas no eran muy diferentes a usted y a mí. Encuentro cuatro perspectivas diferentes en el caso de *El Estado contra Jesús de Nazaret*, cada una de las cuales está representada por una figura principal en los relatos históricos:
+
+- **Pilato.** Estaba completamente convencido de la verdad, pero tenía terror a reconocerla o a actuar por temor a perder el favor de ciertas personas.
+- **Herodes.** Estaba tan absorto por los intereses superficiales, que para él la verdad había perdido su importancia desde hacía mucho tiempo.
+- **La esposa de Pilato.** Era tan fácilmente convencible y tan falta de discernimiento, que tenía una mezcla de verdad y ficción.
+- **Los líderes religiosos.** Se desentendieron voluntariamente de la verdad, porque esta frustraba sus planes personales.
+
+Los juicios a Jesús terminaron. Pero todo hombre y toda mujer tienen desde entonces un asiento en el panel del jurado. Nosotros, al igual que Pilato, Herodes, la esposa de Pilato y la desenfrenada multitud, debemos llegar a un veredicto en nuestros corazones. Jesús ha presentado su caso. Ha sido claro en sus respuestas. ¿En cuál de las cuatro categorías está usted?
+
+Algunas personas son como **Poncio Pilato**. Reconocen la verdad acerca de Jesús y hasta la aceptan, pero se niegan a rendirse a esa verdad porque ella amenaza los planes que tienen para su vida. Temen el rechazo de la gente. Quizás tienen un mayor deseo de poder, dinero, comodidades, relaciones, o de... y la lista es interminable.
+
+Algunos son como **Herodes**. No ven las cosas importantes de la vida, porque están distraídos con sus proyectos, sus fiestas o con la búsqueda de emociones. Creer en Jesús es para fanáticos y otras personas que se toman las cosas demasiado serias. Todo es una gran ridiculez. La verdad sobre Cristo se pierde en la búsqueda de la emoción siguiente.
+
+Las personas como la esposa de Pilato aceptan que las afirmaciones de Jesús son ciertas... lo mismo que las de cualquier filosofía pasajera o creencia religiosa. Hacen de la Biblia, la cruz, la iglesia e incluso del nombre del Señor símbolos apreciados de una fe sentimental o amuleto para protegerse de experiencias negativas. Su fe es superficial y sentimental, incapaz de cambiar su vida o de transformar su carácter.
+
+Pero, peor todavía, muchas personas rechazan a Jesucristo porque él no es el Mesías que se han fijado a sí mismos. Tienen una idea exacta del dios que les gustaría adorar, y que incluso presumen adorar, pero ningún deseo del Dios que realmente vive y que se ha revelado a sí mismo.
+
+Jesús dijo:
+
+&gt; "He venido al mundo para dar testimonio a la verdad. Todo aquel que es de la verdad oye mi voz."
+
+**Juan 18:37**
+
+Pilato devaluó la verdad acerca del Hijo de Dios. Herodes fue demasiado vano y superficial para ver la verdad. La esposa de Pilato aceptaba todo como verdad y, por tanto, no fue capaz de reconocerla. Y la desenfrenada multitud ignoró la verdad por ser inconveniente para ellos.
+
+Ya es suficiente lo dicho en cuanto a ellos. La pregunta hoy es para usted: ¿Qué ha hecho usted con la verdad acerca del Hijo de Dios?
+
+&lt;footer&gt;241&lt;/footer&gt;
