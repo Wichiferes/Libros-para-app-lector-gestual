@@ -1551,3 +1551,196 @@ Trate de imaginar que Barrabás hubiera dicho: "Libertad? No, gracias. Prefiero 
 **¿Ha rechazado usted su regalo? ¿Por qué?**
 
 <footer>256</footer>
+
+
+# **Cuarta Parte: EL REY**
+
+## **Capítulo dieciséis: No hay por qué preocuparse... ¡Él ha resucitado!**
+
+Al mediodía del viernes, el día en que Jesús fue crucificado, una siniestra oscuridad no dejó ver al sol y cubrió a Jerusalén con un manto funesto. Sus discípulos se habían dispersado durante los juicios, y todos, excepto uno, lo dejaron morir solo. El que vendió a su Mesías por el precio de un esclavo cualquiera se ahogó, lo cual no se supo sino hasta después de varios días. Quien negó tener alguna relación con él estaba orando incontrolablemente en un escondite, lejos de las miradas inquisitivas y de las palabras condenatorias. Los demás, menos Juan, escurrieron el bulto manteniéndose cobardemente ocultos. La frase de Mateo es breve, pero elocuente: "Entonces todos los discípulos le abandonaron y huyeron" (Mat. 26:56).
+
+Juan se mantuvo cerca de la cruz mientras Jesús libraba su solitaria batalla contra el mal, aunque no entendía el significado de lo que estaba viendo. Él, al igual que los otros discípulos, veía cómo sus sueños de un nuevo reino se desvanecían lentamente con cada fatigoso respiro de su rey. A cualquiera que viera aquello con los ojos de la carne le habría parecido que la oscuridad, el maligno y la muerte habían derrotado al Hijo de Dios de una vez para siempre.
+
+Tengo que reconocer que estas tres palabras: **oscuridad, maligno y muerte** están en la raíz de casi todas las preocupaciones que sufro. Me preocupa la muerte, en particular la muerte de las personas que amo. Me aterra la idea de vivir sin ellas. Y también me preocupa mi propia muerte, no por lo que me sucederá después de que muera, porque tengo confianza absoluta en las promesas de mi Salvador. ¡Es solo que no quiero estar allí cuando se produzca!
+
+Me preocupa la oscuridad, tanto literal como figurada. Algunas de mis peores heridas, tanto literales como figuradas, han sido el resultado de tropezar con algo que no pude ver. También me preocupan las maquinaciones del maligno, del diablo. Créalo, pues vienen de un hombre que no es dado a las supersticiones y que se mantiene tercamente escéptico cuando la gente habla de fantasmas y espíritus: **¡Satánás es real e implacable en sus ataques contra las personas que tienen la luz!** Él y sus demonios no se parecen en nada a lo que vemos en las pantallas del cine o en la televisión. Satánás se aprovecha de la debilidad de las personas buenas para convencerlas de que sus oscuros deseos y sus acciones más destructivas son cosas inocentes, e incluso buenas. Su arma principal es el engaño, el cual usa hábilmente. Esto es algo que siempre me preocupa.
+
+Los demonios, la oscuridad y la muerte... los tres trabajaron con empeño a través de todo el ministerio de Jesús para engendrar este largo y angustioso día. Envenenaron el corazón de un hombre valiéndose de los pecados secretos que este tenía, para traicionar a su fiel Maestro. Se confabularon con los guardianes de la religiosidad en el sagrado templo de Dios para asesinar al hombre que sus propios profetas habían llamado "el Santo de Israel". Alejaron a Pilato de la verdad que este había aceptado públicamente y anunciado, prefiriendo a cambio de ella las promesas de poder en el reino de Tiberio. Les vendaron los ojos a la enardecida turba para que esta desatara su rabia contra el único que podía darles libertad, no solo de Roma, sino también del mismísimo pecado que les mantenía esclavizados a sus malvados amos y señores.
+
+<footer>260</footer>
+
+Lo que Juan y los otros discípulos no vieron, aunque Jesús lo había dicho todo el tiempo, era que la muerte del Mesías les asestaría un golpe al corazón mismo del mal. Sin embargo, las apariencias eran engañosas. Aunque el maligno, la oscuridad y la muerte sufrieron una herida mortal en el Gólgota, de la cual jamás se recuperarían, esta impía trinidad bailaba de alegría, pensando que había ganado la guerra cuando, en realidad, habían encontrado su fin, su Waterloo, su Día D. El pastor **John Owen** llamó perspicazmente a esto "la muerte de la muerte con la muerte de Jesucristo".
+
+## **LA MUERTE DE LA ESPERANZA**
+
+El largo viaje del Getsemaní al Gólgota duró menos de 24 horas y terminó cuando Jesús entregó su espíritu. Con la llegada de la noche llegaba el sábado judío, y por eso el centurión tenía que acelerar la muerte de quienes siguieran vivos todavía. Según la ley judía, nadie podía continuar colgado en el día sábado, y Pilato tenía así una razón más para honrar sus costumbres.
+
+El método más común para que la crucifixión tuviera un final repentino y dramático, era quebrar las piernas de las víctimas. Esto no solo hacía más difícil la respiración, especialmente después de muchas horas de trauma y fatiga física, sino que también la violencia del procedimiento le quitaba a la víctima la poca vida que le quedaba.
+
+**Frederick T. Zugibe**, en *The Crucifixion of Jesus: A Forensic Inquiry* dice que:
+
+> "La rotura de una vena femoral (del muslo) puede ocasionar la pérdida de dos litros de sangre, y hasta de cuatro litros con las roturas de ambas... La hemorragia causada por las fracturas de las piernas y el severo dolor profundizaría el nivel del shock hipovolémico y traumático, con el consecuente descenso de la presión sanguínea y el rápido desarrollo de la inflamación de las extremidades inferiores, dando como resultado la inconsciencia, el coma y la muerte."
+
+Después de los demoledores golpes a las piernas de los otros dos hombres, los soldados vieron que Jesús ya había muerto, pero para estar absolutamente seguros, uno de ellos le hundió la lanza en el costado y vio que de su cuerpo salió una mezcla de sangre y de un líquido acuoso. Juan escribió: "Y salió al instante sangre y agua" (Juan 19:34), una muestra inequívoca de muerte.
+
+Algunos escépticos han opinado que Jesús nunca murió en realidad, sino que se mantuvo en un coma profundo hasta que fue puesto en la tumba. La llamada teoría del desmayo es un intento desesperado por explicar la resurrección de Jesús sin aceptar una explicación sobrenatural. Pero esta teoría confunde más, en vez de aclarar los hechos.
+
+Las personas en la antigüedad estaban familiarizadas de una manera más íntima con la muerte que nosotros hoy en día. En la mayoría de los países se cuenta con profesionales que se esfuerzan por hacer lo menos desagradable posible el proceso de la pérdida de un ser amado. Una vez que alguien es declarado muerto por un médico, la familia se marcha después de entregar el cadáver al representante de la agencia funeraria, es allí donde se hacen todos los esfuerzos para darle al cuerpo la mejor apariencia. Después el cadáver es expuesto para ser visto por los dolientes durante un período de tiempo. Posteriormente es llevado al cementerio en donde se realiza un servicio en el cual el hoyo, en algunas ocasiones está disimulado por un dispositivo para hacer descender el ataúd. Hay lugares en los que hasta la tierra está tapada por una alfombra verde. Otras personas bajan la urna y la cubren con tierra, y en algunos lugares, según la tradición, esto no se hace sino hasta que todos han abandonado el cementerio, no dejando así ver al público toda la trética realidad.
+
+En gran parte de los Estados Unidos de América y Europa, la costumbre cada vez más frecuente hoy en día es la cremación, en la cual nadie ve el cadáver después que la persona muere. Por tanto, puede decirse con toda seguridad que casi nadie hoy en nuestra cultura sabe qué es tocar un muerto. Pero en el mundo antiguo no era así; ya que eran los familiares y amigos quienes preparaban a sus seres amados para el entierro.
+
+Después que fue confirmada la muerte de Jesús por la lanza del centurión, e informada a Pilato, dos importantes miembros del **Sanedrín judío, José de Arimatea y Nicodemo**, pidieron su cuerpo. Estos, secretos discípulos, junto con varias mujeres, se encargarían de la terrible tarea de preparar el cuerpo de Jesús para la sepultura. Después que los soldados bajaron el cuerpo de Jesús de la cruz, sus amigos tuvieron que flexionarle y masajearle los brazos para reducirle el rigor mortis que les había dado la forma de una V después de morir. Luego lo lavarían su cuerpo y lo ungirían con aceite antes de envolverlo en una mortaja de lino y colocarle un trapo de bajo del mentón para evitar que la boca se le abriera después de que los músculos comenzaran a aflojarse.
+
+Después envolverían su cuerpo de pies a cabeza con largas franjas de lino que previamente habían sido humedecidas con una mezcla de especias aromáticas resinosas. Usarían entre 75 y 100 libras de especias aromáticas para neutralizar el olor de la descomposición del cuerpo. Luego lo colocarían sobre una tabla en una tumba excavada en el lado de una colina de piedra caliza. Después de haber transcurrido un año, y de estar el cuerpo totalmente destruido, recogerían sus huesos y los pondrían en un osario familiar (una caja para huesos), para reunirlos con los de sus antepasados. De esta manera, sería "unido a sus padres".
+
+Mientras el sol desaparecía debajo del horizonte, el grupo mortuorio se vio presionado por dos mandamientos. Tenían que observar el sábado (que comenzaba con la puesta del sol), pero **Deuteronomio 21:22,23** requería que el cadáver de alguien que hubiera sido ejecutado debía ser enterrado ese mismo día. Por la cercanía de la noche, tenían apenas el tiempo suficiente para envolver rápidamente el cuerpo en la tela, ponerle al menos algunas especias y colocarlo dentro de la tumba. Un grupo de hombres rodaría después una enorme piedra sobre la entrada para impedir que entraran ladrones y que salieran los malos olores.
+
+Mientras los seguidores de Jesús hacían lo más que podían para terminar su tarea antes de la puesta del sol para así honrar el sábado, los saduceos y los fariseos estaban haciéndole una nueva petición a Pilato:
+
+> "Señor, nos acordamos de que mientras aún vivía, aquel engañador dijo: 'Después de tres días resucitaré'. Manda, pues, que se asegure el sepulcro hasta el tercer día, no sea que sus discípulos vengan y roben el cadáver, y digan al pueblo: 'Ha resucitado de los muertos'. Y el último fraude será peor que el primero."
+
+**Mateo 27:63,64**
+
+A Pilato no le importaba lo que la gente creyera, y no veía de qué manera podía una supuesta resurrección preocupar a Roma. Por tanto, les dio a los líderes religiosos un sello oficial para que lo colocaran en la tumba; también les dijo que pusieran sus propios guardias, que probablemente se trataba de soldados romanos pagados por la tesorería del templo, y también de guardias del templo asignados para supervisar los detalles concernientes a la tumba. Después de haber sellado la tumba y puesto un grupo de soldados junto a la entrada, los principales sacerdotes, escribas y fariseos se fueron a sus casas para guardar la ley del sábado. El domingo por la mañana seguirían guardando la fiesta de los Panes sin levadura y haciendo los preparativos para los sacrificios del servicio final de la celebración. Después, tras haber silenciado a Jesús... las cosas seguirían como siempre.
+
+Mientras tanto, los seguidores de Jesús guardaban luto solos y desilusionados, preguntándose probablemente cada uno: ¿Y ahora qué?
+
+<footer>264</footer>
+
+## **NOTA MÁS**
+
+Las primeras horas de la mañana del domingo fueron todo un pandemonio, de lo cual dan cuenta los cuatro Evangelios. Muchas veces, cuando las personas cuentan la historia de un hecho confuso, se concentran en los aspectos de la historia que consideran más importantes, omitiendo otros detalles. También tienden a condensar algunos detalles resumiendo las palabras, y referirse a cada matiz del hecho que más les interesa. En este caso, tenemos cuatro testigos del acontecimiento, lo cual nos da mucha información. Sin embargo, para ver todo el panorama tenemos que correlacionar sus relatos. El de Juan se concentra en la experiencia de María Magdalena, mientras que Mateo, Marcos y Lucas nos dicen lo que pasó con las otras mujeres (Luc. 24:10).
+
+La mañana siguiente al sábado, es decir el domingo por la mañana, los guardias hacían su vigilia sobre su prisionero muerto cuando, de repente, la tierra tembló y una luz brillante inundó el huerto.
+
+> "...el ángel del Señor descendió del cielo, y al llegar removió la piedra y se sentó sobre ella. Su aspecto era como un relámpago, y su vestidura era blanca como la nieve. Los guardias temblaron por miedo de él y quedaron como muertos."
+
+**Mateo 28:2-4**
+
+Poco después, María Magdalena, otra María, Salome, Juana y otras mujeres más llegaron a la tumba de Jesús. El relato de Lucas dice que su propósito era terminar el proceso de la sepultura con las especias aromáticas que habían preparado (Luc. 24:1), y que se preguntaban cómo podrían mover ellas la gigantesca piedra. Mientras María Magdalena y las otras mujeres se acercaban a la tumba, vieron que la gran piedra había sido echada a un lado, y a los guardias tumbados e inconscientes cerca de ella. Según el Evangelio de Juan, María corrió de inmediato para decir a Pedro y a Juan lo que ella pensaba que había sucedido. "Han sacado al Señor del sepulcro, y no sabemos dónde le han puesto" (Juan 20:2).
+
+Póngase usted en los zapatos de estas personas por un minuto, e imagine que ha perdido a un familiar o a un amigo muy querido. Después de enterrarlo hace apenas un par de días, decide poner algunas flores en el sepulcro. Llega en las primeras horas de la mañana, y encuentra que la tierra que cubría la tumba ha sido quitada, que el ataúd está abierto junto al hoyo y que el cuerpo ha desaparecido. Su primer pensamiento sería, naturalmente: ¡Alguien se robó el cuerpo!
+
+Cuando María Magdalena corría para decir a Pedro y a Juan que alguien había entrado a la tumba, las otras mujeres entraron para dar una mirada más detenida.
+
+> "Al entrar, no hallaron el cuerpo de Jesús. Aconteció que estando perplejas por esto, he aquí se pusieron de pie junto a ellas dos hombres con vestiduras resplandecientes. Como ellas les tuvieron temor y bajaron la cara a tierra..."
+
+**Lucas 24:3-5**
+
+La tumba estaba completamente abierta. La mortaja de lino que había cubierto al cuerpo estaba allí, intacta, pero vacía. El cuerpo había desaparecido. El original griego describe a las mujeres como "sin dirección", significando así que no podían explicarse el misterio. Estuvieron mudas de asombro y con la mirada fija durante varios minutos, hasta que se dieron cuenta de que había aparecido una presencia angélica detrás de ellas. Una se sentó sobre la piedra, mientras que las demás estaban de pie cerca.
+
+> "¿Por qué buscáis entre los muertos al que vive? No está aquí; más bien, ha resucitado. Acordaos de lo que os habló cuando estaba aún en Galilea, como dijo: 'Es necesario que el Hijo del Hombre sea entregado en manos de hombres pecadores, y que sea crucificado y resucite al tercer día.'"
+
+Entonces ellas se acordaron de sus palabras.
+
+**Lucas 24:5-8**
+
+Métase en la historia una vez más. Usted está de pie sobre el ataúd vacío de su ser amado, y un ángel le da la noticia: "Su ser querido ha resucitado de los muertos". Usted probablemente quisiera dar la noticia a los otros familiares y amigos afligidos lo más pronto posible. Pero, seámos honestos: usted probablemente pensaría que ha perdido el juicio. Lo pensaría dos veces antes de decírselo a alguien.
+
+> "[Las mujeres] salieron y huyeron del sepulcro, porque temblaban y estaban presas de espanto. Y no dijeron nada a nadie, porque tenían miedo" (Mar. 16:8).
+
+Pero entonces encontraron a alguien que les quitó cualquier duda que podían haber estado albergando en sus cabezas.
+
+> "Y he aquí, Jesús les salió al encuentro, diciendo: —¡Os saludo! Y acercándose ellas, abrazaron sus pies y le adoraron. Entonces Jesús les dijo: No temáis. Id, dad las nuevas a mis hermanos, para que vayan a Galilea. Allí me verán."
+
+**Mateo 28:9,10**
+
+Las mujeres buscaron entonces a los dispersados discípulos y hablaron con cada uno acerca de la tumba vacía, de los ángeles que se les habían aparecido y de su encuentro con Jesús resucitado. "Pero sus palabras les parecían a ellos locura, y no las creyeron" (Luc. 24:11). La palabra griega traducida como "locura", era un término médico para referirse a las febriles divagaciones del delirio. Los discípulos rechazaron su historia como habladurías sin sentido.
+
+<footer>266</footer>
+
+Mientras que María la madre de Jacobo, Salome, Juana y las otras mujeres informaban a varios de los discípulos, María Magdalena encontró a Pedro y a Juan. Al comienzo, estos rechazaron su historia como un exceso de fuertes emociones, pero la curiosidad los venció al final y fueron corriendo a la tumba.
+
+> "Y los dos corrían juntos, pero el otro discípulo corrió más rápidamente que Pedro y llegó primero al sepulcro. Y cuando se inclinó, vio que los lienzos habían quedado allí; sin embargo, no entró. Entonces llegó Simón Pedro siguiéndole, y entró en el sepulcro. Y vio los lienzos que habían quedado, y el sudario que había estado sobre su cabeza, no puesto con los lienzos, sino doblado en un lugar aparte."
+
+**Juan 20:4-7**
+
+Cuando Juan escribió de su experiencia con Pedro en la tumba, usó tres palabras diferentes para referirse a cómo fue que ellos "vieron". Cuando llegó Juan, éste se detuvo a la entrada de la tumba y miró hacia adentro. Utilizó el término griego **blepo**, que significa simplemente notar algo sin pensar en lo visto. Se refiere a una clase de observación precisa, pero casual. Un buen ejemplo de esto sería lo que sucede cuando un conductor ve una luz roja en una intersección. Ve la luz y luego se detiene sin ponerse a pensar en ella. Juan vio la mortaja de lino y la reconoció, pero no consideró en ese momento las implicaciones.
+
+Pedro, por el contrario, corrió directamente a la tumba sin detenerse y "vio" la mortaja de lino de una manera diferente. Juan utilizó la palabra **theoreo**, de la cual se deriva la palabra teoría. A diferencia de Juan, Pedro no solo observó la mortaja de lino sino que además la estudió buscando una explicación, tratando de comprender lo que había sucedido.
+
+¿Por qué razón la condición de la mortaja de lino despertó el asombro de Pedro?
+
+**Merrill C. Tenney**, en su libro *The Reality of the Resurrection*, dice que:
+
+> "Hay la fuerte idea de que la mortaja de lino no estaba doblada como si Jesús la hubiera desenrollado y puesto después de manera ordenada sobre la tabla. La palabra utilizada para describir el sudario de la cabeza no tiene la connotación de algo doblado como la servilleta de una mesa, sino de un ovillo de ropa que tenía el aspecto de haber estado enrollada alrededor de un objeto que ya no estaba allí. Las envolturas estaban en la misma forma como había sido puesto el cuerpo; el sudario de la cabeza donde había estado ésta, separada de la otra ropa por la distancia que hay entre los hombros y el cuello. La forma del cuerpo seguía siendo evidente en ellas, pero la carne y los huesos habían desaparecido."
+
+El curioso estado de la mortaja de lino vacía que tenía aún la misma forma del cuerpo no indicaba que alguien hubiera robado rápidamente el cuerpo, sino que algo más, muy extraño, había sucedido.
+
+Finalmente, Juan se unió a Pedro en la tumba, "y vio y creyó" (Juan 20:8). En este caso, Juan utilizó una tercera palabra, **eidon**, la cual significa percibir con el entendimiento. En otras palabras, vio la mortaja de lino y "entendió". Todo estaba claro. Tenney sigue diciendo: "La respuesta al enigma era que Jesús había resucitado y atravesado la mortaja de lino, la cual dejó sin tocar como prueba silenciosa de que la muerte no había podido retenerlo, ni las ataduras materiales contenerlo." Me agrada pensar que Juan se volvió hacia Pedro, y le dijo: "¡Él está vivo!"
+
+Después de que Pedro y Juan salieron de la tumba para contar en sus casas que Jesús había resucitado, María Magdalena tuvo su propio encuentro extraordinario. Los ángeles que habían saludado a las otras mujeres, se le aparecieron a ella también (Juan 20:11-13). Y cuando se marchó del huerto vio al Jesús resucitado, quien le dio las mismas instrucciones que había dado a las otras: Ve a mis hermanos y cuéntales.
+
+## **COMPRUÉBALO!**
+
+Cuando María, Salome y las otras mujeres encontraron a los dispersos seguidores de Jesús y se corrió la voz de que su cuerpo había desaparecido, un gentío comenzó a reunirse en el aposento alto, quizás en la misma habitación donde Jesús había celebrado la Pascua. Sus seguidores se pusieron a hablar de todo lo que había sido dicho por las mujeres, e intercambiar teorías acerca de lo que pudo haber sucedido. Pedro y Juan llegaron seguidos por María Magdalena, y no pasó mucho tiempo sin que todos los que habían sido seguidores cercanos de Jesús se dirigieran al lugar acostumbrado de reunión, esperando oír más noticias.
+
+Entonces, estando las puertas muy bien cerradas por temor a la persecución, y envueltos los seguidores de Jesús en una animada conversación, una voz familiar surgió del medio de la habitación.
+
+> "¡Paz a vosotros!" Habiendo dicho esto, les mostró las manos y el costado. Los discípulos se regocijaron cuando vieron al Señor. Entonces Jesús les dijo otra vez: "¡Paz a vosotros! Como me ha enviado el Padre, así también yo os envío a vosotros." Habiendo dicho esto, sopló y les dijo: "Recibid el Espíritu Santo. A los que remitáis los pecados, les han sido remitidos; y a quienes se los retengáis, les han sido retenidos."
+
+**Juan 20:19-23**
+
+Cuando esto sucedió, Tomás, uno de los doce, no había regresado todavía de Galilea. Cuando llegó, todas las personas con que se encontraba le hablaban de la tumba vacía, de la manera extraña en que fue dejada la mortaja de lino, del deslumbrante aspecto de los ángeles y del encuentro personal de ellas con el Jesús resucitado. Sin embargo, no quiso creer lo que le decían.
+
+> "Si yo no veo en sus manos la marca de los clavos, y si no meto mi dedo en la marca de los clavos y si no meto mi mano en su costado, no creeré jamás."
+
+**Juan 20:25**
+
+A lo largo de los siglos, desde la famosa exigencia de este discípulo de tener una evidencia empírica, los expositores bíblicos y los predicadores le han dado el desafortunado título de "Tomás el incrédulo". Es fácil criticar a Tomás desde la ventajosa perspectiva que nos ofrece hoy en día la historia.
+
+Sospecho que Tomás era el más crítico de todos los discípulos, pero no todos podían ser como las mujeres, que oyeron la noticia y creyeron de inmediato. No todos eran como Pedro y Juan, que examinaron la evidencia, la sopesaron con las palabras de Jesús, llegaron a la conclusión correcta y luego creyeron serenamente. Tomás no tuvo la buena fortuna de estar presente cuando Jesús se presentó como prueba tangible de que él había cumplido su promesa de vencer la muerte. Tomás, sin duda, se preguntaba si las ilusiones que se habían forjado sus amigos los habían llevado a una histeria colectiva.
+
+No olvidemos tampoco el cúmulo de evidencias empíricas que Tomás tenía que vencer. Él, al igual que los otros discípulos, había visto desde lejos cómo avanzaba Jesús con paso inseguro a través de las congestionadas calles de Jerusalén en dirección al Gólgota. Había visto cómo salía la sangre de las numerosas heridas que tenía en la espalda y piernas. Había oído el golpe del mazo contra los clavos de hierro que lo sujetaron a la cruz. Su cuerpo se encogía cada vez que el angustioso gemido de su Maestro penetraba la oscuridad que había envuelto a Jerusalén. Había oído la desolada súplica de su Maestro al cielo: "Dios mío, Dios mío, ¿por qué me has desamparado?" (Mar. 15:34). Es posible que haya visto también los rígidos restos de su Mesías cuando eran bajados de la cruz, envueltos como una momia y puestos en una tumba. Antes de llegar el domingo por la mañana, su decepción había provocado su huida de Jerusalén hacia la seguridad de su hogar en Galilea. Durante horas, Tomás lloró a solas; su corazón estaba destrozado. La desilusión se había apoderado de él.
+
+Pocos días después comenzaron a circular rumores. Las sinagogas y las plazas estaban llenas de relatos sobre Jesús. De cómo había sido arrestado violentamente en medio de la noche y arrastrado al sanedrín y al procurador. De cómo fue crucificado fuera de las puertas de Jerusalén. De cómo fue sacrificado en la Pascua y sepultado a la caída de la tarde. Tomás fingía no darse cuenta de los dedos que lo señalaban ni de los comentarios en voz baja que hacían de él desde su regreso a la vida normal. Se había propuesto olvidarse de todo ese vergonzoso asunto de seguir a un falso mesías. Había sido engañado en su buena fe, y la experiencia lo haría más prudente en el futuro. Probablemente pensó: "Hay que tener cuidado con lo que uno decide creer. Cuanto más le entrega uno su corazón a algo, o a alguien, más tiempo se necesita para sanar la herida después que es destrozado. ¡Aprendí la lección!"
+
+Pero, a pesar de sus grandes esfuerzos por seguir apartado y recuperar su dignidad, Tomás no podía ignorar el rumor más reciente de que ¡Jesús estaba vivo! Ocho días después de la supuesta resurrección, se hallaba de nuevo en Jerusalén, rodeado de fervientes seguidores de Jesús, presionándolo con las evidencias que habían experimentado personalmente. Sin embargo, el abrir de nuevo su corazón era como ofrecerse voluntariamente para una segunda flagelación. ¿Quien que estuviera en su sano juicio haría una cosa semejante?
+
+Con las puertas más cerradas que antes, y con los seguidores de Jesús discutiendo sobre cuáles serían los próximos pasos que darían, una voz familiar tranquilizó la habitación.
+
+> "Paz a vosotros."
+
+Jesús estaba una vez más en medio de la habitación, solamente que esta vez había venido para ver a una persona en particular. No para sermonearla, ni regañarla, ni avergonzarla sino para restaurarla.
+
+> "Pon tu dedo aquí y mira mis manos; pon acá tu mano y métela en mi costado; y no seas incrédulo sino creyente."
+
+**Juan 20:27**
+
+Tomás no se movió. No levantó siquiera un dedo. No discutió ni resistió. Le había sido dado todo lo que necesitaba, y por lo tanto respondió de la manera como solo un genuino seguidor de Jesús puede hacerlo: Tomás dijo:
+
+> "¡Señor mío, y Dios mío!"
+
+Jesús le dijo:
+
+> "¿Porque me has visto, has creído? ¡Bienaventurados los que no ven y creen!"
+
+**Juan 20:28, 29**
+
+## **"PAZ A VOSOTROS"**
+
+Las personas que conocieron a Jesús tuvieron el beneficio de ciertas experiencias que nosotros no tuvimos; más significativamente la evidencia tangible de su resurrección y de los encuentros cara a cara con él. Sin embargo, sus respuestas de aquel domingo por la mañana son las mismas reacciones que encuentro actualmente cada día como portador de esta buena nueva.
+
+**Algunos creyeron de inmediato.** Recibieron la información, recordaron lo que Jesús había profetizado varias veces durante su ministerio, conectaron todo lo sucedido y aceptaron su resurrección como verdadera.
+
+**Algunos creyeron por la evidencia indirecta.** Al comienzo dudaron, pero cuando recibieron más información, tal como ver una tumba vacía y la manera peculiar en que quedó la mortaja de lino, sabían que él había resucitado.
+
+**Algunos creyeron por la evidencia directa.** Creyeron que Jesús había resucitado solo después de verlo con sus propios ojos.
+
+<footer>272</footer>
+
+La resurrección de Cristo es un hecho histórico que tiene implicaciones trascendentales, mucho más significativas que el simple hecho de que un hombre volvió a la vida después del eterno silencio de la muerte. A diferencia de cualquier otro antes de él, Jesús nunca moriría otra vez. La clase de vida a la cual ha sido resucitado supera la clase de vida que nosotros seguimos soportando. Nuestros cuerpos se enferman y se dañan. Nuestras relaciones actuales están condenadas a tener fin, tarde o temprano, por la deslealtad, la distancia o la muerte inevitable de todas las personas que conocemos. Los tiempos de felicidad tienen siempre que dar paso a los de tristeza, aunque, afortunadamente, ninguna tristeza es para siempre. El maligno, la oscuridad y la muerte han sido vencidos, pero siguen atacando con odio desesperado contra todo lo que hay en este mundo creado por Dios.
+
+Pero, **no hay por qué preocuparse...** Jesús vive con una nueva clase de vida que anhela dar a todos los que quieran creer en él. Como escribió **Peter Marshall** en *The First Easter*:
+
+> "Ningún diario sensacionalista publicará jamás la asombrosa noticia de que el cuerpo momificado de Jesús de Nazaret ha sido descubierto en la antigua Jerusalén. Los cristianos no tienen un cadáver cuidadosamente embalsamado en un cajón para adorarlo. Gracias a Dios, tenemos una tumba vacía. La gloriosa verdad que nos anuncia la tumba vacía es que la vida para nosotros no termina con la muerte. La muerte no es una pared, sino una puerta."
+
+Desafortunadamente, una puerta abierta puede llegar a ser también una puerta bajo llave de una prisión para quien se niega a cruzar el umbral. No todos respondieron con fe a la evidencia de la resurrección de Jesús. Recuerda los guardias que sintieron el temblor del divino poder, y vieron el fulgor de luz angelical?
+
+> "...algunos de la guardia fueron a la ciudad y dieron aviso a los principales sacerdotes de todas las cosas que habían acontecido. Ellos se reunieron en consejo con los ancianos, y tomando mucho dinero se lo dieron a los soldados, diciendo: 'Decid: "Sus discípulos vinieron de noche y lo robaron mientras nosotros dormíamos".' Y si esto llega a oídos del procurador, nosotros le persuadiremos y os evitaremos problemas". Ellos tomaron el dinero e hicieron como habían sido instruidos. Y este dicho se ha divulgado entre los judíos hasta el día de hoy."
+
+**Mateo 28:11-15**
+
+Estos son los hombres y estas son las mujeres que me mantienen frente al público en el púlpito, y firme en mi tarea de escribir libros. Aunque han sido absueltos de la prisión del pecado, siguen estando rotundamente acurrucados en sus calabozos con sus dudas, sus temores, sus resentimientos y sus angustias como sus compañeros. Dios ha puesto en mí el deseo apasionado de verles libres. Pero, lo único que puedo hacer es anunciarles las buenas nuevas. ¿Es usted parte de ese grupo? O, ¿se ha dado cuenta de que necesita un Salvador y por eso le ha confiado a Él su alma eterna? ¡Le felicito! El maligno, la oscuridad y la muerte podrán ufánarse y darse aires, y las punzadas de la vida causarle un dolor agudo, pero no se preocupe: las fuerzas del mal están dando su último respiro pues... **¡Él ha resucitado!**
+
+<footer>273</footer>
