@@ -1354,3 +1354,200 @@ Pilato devaluó la verdad acerca del Hijo de Dios. Herodes fue demasiado vano y 
 Ya es suficiente lo dicho en cuanto a ellos. La pregunta hoy es para usted: ¿Qué ha hecho usted con la verdad acerca del Hijo de Dios?
 
 &lt;footer&gt;241&lt;/footer&gt;
+
+
+# **Capítulo quince: Entregado para ser crucificado**
+
+Algunas imágenes son difíciles de ver, pero otras son demasiado importantes como para dejar de verlas.
+
+Durante los dieciséis meses que pasé en Okinawa con la Tercera División de la Infantería de Marina, mi equipo visitó un leprocomio que quedaba en el extremo norte de la isla. Mientras saludaba a las personas que se habían auto-secuestrado por su propio bien y el de sus familiares, hombres y mujeres cuyos cuerpos habían sido desfigurados horriblemente por lo que los médicos llaman la **enfermedad de Hansen (lepra)**, quise mirar hacia otro lado. El sufrimiento que veía era más de lo que yo podía soportar. Pero apartar la mirada de ellos sería despreciar a esas personas, y estábamos allí para ayudarlas a olvidarse de su enfermedad por un momento.
+
+Descubrí que si me concentraba en sus ojos, podía conectarme con la persona cuyo cuerpo la hacía parecer, y sentir, cada vez menos humana. Una vez que tenía un encuentro con la humanidad que había en el interior de ella, podía aceptar e incluso abrazar su desfigurado y consumido cuerpo como el más humano de todos.
+
+Me alegra el no haber apartado mis ojos de ellos. Por más difícil que fuera ver esas imágenes, las personas que viven aislados y en el anonimato en el extremo norte de una diminuta isla del Pacífico Sur cambiaron mi vida. El leprocomio se ha convertido, para mí, en una metáfora de lo que es la iglesia. Es lo que me mantiene en el ministerio cuando víctimas desfiguradas por la depravación, aún contaminadas por la suciedad del pecado, llenan los bancos de la iglesia, llegan a ser líderes y se atreven a pararse frente a otros para enseñar... o incluso detrás de un púlpito para predicar.
+
+A veces, las imágenes más terribles pueden convertirse en el catalizador de los cambios más significativos que se producen en nuestra vida... solo si no rechazamos el impulso de mirar hacia otro lado.
+
+## **ENTREGADO**
+
+Con Barrabás en un calabozo debajo de la fortaleza Antonia a menos de quinientos metros de distancia del pretorio, Pilato les aclaró el asunto a los líderes religiosos y a sus sanguinarios lacayos. “He aquí, os lo traigo fuera, para que sepáis que no hallo ningún delito en él” (Juan 19:4). El populacho pidió de nuevo la libertad de Barrabás a cambio de la crucifixión de Jesús, diciendo: “Si sueltas a este, no eres amigo del César” (Juan 19:12). Pilato, entonces, se exoneró simbólicamente de la culpa lavándose las manos, y les dio lo que ellos querían.
+
+Los juicios hechos a Jesús tuvieron un fin predecible, porque llegaron a la conclusión que ya había sido decidida. Jesús no era la clase de Mesías que el turbulento populacho quería. No era el gobernante títere que podían controlar los ricos y poderosos. Jesús no era la amenaza revolucionaria que Pilato esperaba condenar legítimamente. En lo único que podían coincidir estas partes habitualmente en conflicto, era en que la muerte de Jesús resolvería sus problemas. “Y con esto entonces [Pilato] lo entregó a ellos para que fuese crucificado” (Juan 19:16).
+
+A lo largo de los siglos, la humanidad ha inventado centenares de maneras de matar a los hombres, y la mayoría de ellas han sido diseñadas para producir una muerte lo más lenta y dolorosa posible. Pero ninguna de ellas se compara con la crucifixión. El antiguo orador **Cicerón** en *The Verrine Orations*, describió a la crucifixión como "la peor y más extrema de las torturas inflingidas a los esclavos". **Tácito** la llamó una "muerte despreciable".
+
+Según el historiador griego **Herodoto**, los persas inventaron la práctica después de experimentar con otras formas de muerte lenta, entre ellas la lapidación, el ahogamiento, las llamas, el aceite hirviente, la estrangulación y el desollar vivo a una persona. Finalmente comenzaron a ejecutar a personas que consideraban particularmente detestables, clavándolas en postes para evitar que contaminaran la tierra, la cual su dios, Ormuz, había hecho sagrada. La crucifixión se convirtió después en una herramienta de Alejandro el Grande, de los cuatro generales que le sucedieron y, finalmente, de los cartaginenses, de quienes la aprendieron los romanos.
+
+Los griegos y los antiguos romanos tenían reservada la crucifixión para los rebeldes, los esclavos, los soldados desertores y los peores criminales, a quienes consideraban criaturas inferiores; la idea de dejar que una persona fuera colgada les era aborrecible. Cicerón sigue diciendo:
+
+> "Atar a un ciudadano romano es un delito; azotarlo, una abominación; ajusticiarlo, casi un acto de asesinato; ¿crucificarlo, qué es? No hay una palabra adecuada que pueda describir de alguna manera un hecho tan horrible."
+
+La crucifixión reunía las cuatro cualidades que los romanos más apreciaban: **agonia intensa, muerte lenta, espectáculo público y humillación total**. Por tanto, sigue diciendo, se convirtió en "uno de los mejores medios de mantener el orden y la seguridad. Los gobernantes imponían este humillante castigo especialmente a los revolucionarios que trataban de librarse del gobierno de Roma".
+
+Aunque los romanos no inventaron la crucifixión, la transformaron en un arte macabro. Se preparaba a un **exactor mortis** en los puntos más refinados de la muerte, y estaba al frente de un equipo de soldados llamado un **quaternion**. Su única tarea era hacer que la ejecución romana fuera un espectáculo aterrador, y su experiencia les daba amplia oportunidad para experimentar con diferentes métodos. **Frederick T. Zugibe** en *The Crucifixion of Jesus: A Forensic Inquiry* dice que:
+
+> "Josefo decía que los soldados clavaban a sus víctimas en diferentes posiciones, ya fuera para su propia diversión, o por rabia, sadismo, antojo o animadversión."
+
+Con el tiempo, aprendieron cómo añadir otros elementos al procedimiento, y ajustarlos para lograr el efecto deseado. Podían controlar hábilmente la cantidad de dosis de sufrimiento, la causa de la muerte e incluso el momento de la muerte de la víctima.
+
+La víctima, normalmente, sufría una flagelación con el **flagrum** antes de la ejecución, y el grado hasta el cual era flagelada determinaba por lo general cuánto tiempo estaría viva en la cruz. Si el verdugo quería que la víctima muriera muy rápidamente, escogía un látigo que tuviera pedacitos de hueso de oveja trenzado en las puntas. Por el contrario, una flagelación menos severa con simples tiras de cuero podía dar como resultado que la persona durara varios días en la cruz y quizás hasta más de una semana.
+
+Después que el lictor terminaba su cruel tarea, el **exactor mortis** y el **quaternio** desnudaban al prisionero, lo obligaban a llevar el instrumento de su muerte al lugar de la ejecución y le colocaban un letrero llamado **titulus** alrededor del cuello. Este titulus no era más que una tosca tabla en la que estaba escrito el nombre del preso y una lista de sus delitos. Al final era puesta en la cruz sobre la cabeza de la víctima para que todo el mundo supiera la razón por la que había sido colgado y muerto.
+
+Tras poner la carga de muerte sobre el condenado y el titulus alrededor de su cuello, el quaternio formaba un cuadrado en torno a la víctima y comenzaba una larga y lenta marcha por las principales partes de la ciudad, una marcha hacia la muerte llamada, años después, la **Vía Dolorosa**, la "vía del sufrimiento". El propósito de la marcha era, por supuesto, darle realce al espectáculo público, lo cual reforzaba la advertencia a cualquier otro criminal potencial. En los Estados Unidos de América, y otros lugares alrededor del mundo donde se sigue aplicando la pena de muerte, las ejecuciones se llevan a cabo a puertas cerradas, lejos de los ojos del público. Bajo Roma no era así. Una ejecución era un asunto deliberadamente público.
+
+En el último de los juicios, el lictor y su grupo habían golpeado tanto a Jesús que casi le produjeron la muerte. Después lo enviaron al pretorio sangrando, golpeado y temblando bajo estado de shock. En el momento que Pilato lo entregó al **exactor mortis**, Jesús no habría podido llevar su carga muy lejos. Quizás la arrastró hasta cierta distancia, pero los soldados se impacientaron y reclutaron a un hombre llamado **Simón de Cirene** para que la llevara por él.
+
+Los líderes religiosos no estuvieron de acuerdo con el titulus que Pilato había preparado. Debajo del nombre "Jesús Nazareno", Pilato puso en hebreo, latín y griego el delito por el cual era crucificado: "Rey de los judíos". Los líderes querían que el letrero dijera: "Jesús Nazareno, autollamado Rey de los judíos" por temor a que alguien tomara la inscripción de manera literal. Pero Pilato sintió que ya había transigido de más lado, y se negó a ceder. "Lo que he escrito, he escrito" (Juan 19:22).
+
+<footer>246</footer>
+
+Jesús no habría podido llevar la cruz, que debió haber pesado más de ciento diez kilos. Hasta un hombre que no hubiera sido flagelado habría tenido problemas para arrastrar, por no decir llevar encima, tanto peso.
+
+Según W. D. Edwards, J. Gabel y F. E. Hosmer en "On the Physical Death of Jesus Christ", aparecido en el *The Journal of the American Medical Association*, la viga transversal, llamada **patibulum** "estaba colocada sobre la nuca de la víctima, y equilibrada por ambos hombros". La parte vertical, una estaca, esperaba a la víctima en el lugar de la ejecución. Este lugar era por lo general una vía principal que llevaba a la ciudad. Al llegar allí, el patibulum era atado a la parte superior de la estaca por medio de una junta de muesca y espiga para formar una "T" mayúscula gigante.
+
+Si la Jerusalén del primer siglo se parecía a la de hoy, casi cualquier ruta a través de la ciudad habría sido una pesadilla claustrofóbica. Las estrechas y serpenteantes callejuelas habrían estado llenas de visitantes para la fiesta de la Pascua. Y la desigual superficie empedrada habría hecho trastabillar a Jesús mientras llevaba el peso del madero sobre sus hombros. Si se hubiera caído, por tener los brazos atados a la viga transversal, nadie habría impedido que se le estrellara la cara contra las piedras.
+
+## **LEVANTADO**
+
+Cuando llegaron a un sitio que los lugareños apodaban el **Gólgota**, "Lugar de la calavera", pusieron al patibulum en el suelo y luego lo ataron a la parte superior de la estaca. Las víctimas eran puestas sobre el madero y atadas a la cruz con los brazos extendidos sobre el patibulum y los pies sobre la estaca. Por lo general, lo cual no parece particularmente brutal hasta que se piensa que eso, les hacía más lenta la muerte que cuando eran clavados.
+
+Para entender mejor los efectos de la crucifixión sobre el cuerpo, el doctor **Frederick Zugibe**, patólogo forense, ha hecho de la crucifixión un tema de estudio por más de cincuenta años. Entre sus experimentos está el atar a los voluntarios a una cruz para observar su conducta y anotar sus reacciones fisiológicas. El doctor Zugibe monitorea su respiración, la presión sanguínea, el ritmo cardíaco, la circulación e incluso la cantidad de oxígeno en la sangre. Sus descubrimientos han hecho que los historiadores vean la crucifixión de una manera diferente.
+
+La mayoría de las personas que se sometieron a las pruebas del doctor Zugibe experimentaban una gran molestia en la primera media hora. Se les entumecían los antebrazos y sentían como si se les dislocaran los hombros, de modo que, para aliviar dolor y el entumecimiento de los brazos, recogían instintivamente las piernas. Estas se les acalambraban, se les debilitaban y se les enfriaban después, hasta que arqueaban su espalda. Pero esto se volvía pronto difícil de soportar, por lo que tenían que volver a una de las otras posiciones. Al final, los voluntarios tenían que mantener su cuerpo en constante movimiento para aguantar el dolor en los brazos, el pecho, la espalda y las piernas. Imaginemos lo que significa hacer esto veinticuatro horas al día durante días.
+
+Estos experimentos, junto con un examen de los documentos históricos, revelaron que la muerte se producía usualmente por exposición a los elementos, deshidratación, inanición o asfixia por fatiga. En el caso de la asfixia, el retorcimiento continuo del cuerpo dejaba finalmente a la víctima demasiado agotada, deshidratada y desnutrida como para dar un respiro más, lo cual la llevaba al ahogo. Si el verdugo era particularmente sádico, le ponía a la cruz un **sedile**, que era una especie de sillín puntiagudo colocado más o menos en la parte media de la estaca, entre las piernas de la víctima, donde esta podía cada cierto tiempo apoyar el cuerpo. Lo irónico de esto es que se aliviaba el sufrimiento del preso con el fin de prolongar su agonía.
+
+<footer>247</footer>
+
+Para apresurar el final, el **exactor mortis** podía clavar a la víctima, en vez de usar cuerdas, lo que le producía la muerte en cuestión de horas, en vez de días. Pero, aunque la víctima sufriera por menos tiempo, la intensidad de su agonía es apenas concebible. Los médicos han determinado a través de una combinación de medios, que la víctima era clavada a la cruz atravesándole las manos a la altura de la base de las palmas y en un ángulo tal, que el clavo le atravesaba las muñecas. Esto no solo sostenía el peso de la persona, sino que también le causaba el dolor más intenso.
+
+El clavo era introducido a través de la palma de la mano junto a la muñeca, lo cual dañaba severamente el nervio medio del brazo y del antebrazo. En un par de horas, la víctima experimentaba una dolorosa condición llamada **causalgia**. **Frederick T. Zugibe**, en su libro *The Crucifixion of Jesus: A Forensic Inquiry* dice al respecto:
+
+> "Este síndrome se observaba comúnmente durante los años de la guerra, después de sufrir lesiones parciales en el nervio medio y en otros nervios periféricos. El dolor es horrible y tenaz, y produce una sensación de quemadura tan intensa que aún el más suave contacto, por ejemplo, el de la ropa o de una ráfaga de aire, puede causar una gran tortura. Puede ser agravado por los movimientos, los sonidos estridentes o las emociones. El dolor corre por el brazo como rayos. El paciente se concentra totalmente en evitar cualquier contacto y en mantener las extremidades en una posición particular... Las víctimas de la causalgia caen en con frecuencia en shocks si el dolor no es controlado."
+
+La víctima clavada en la cruz, o alguien que fuera atado a la misma, tenía también que mantener el cuerpo en constante movimiento para aliviar el dolor en los brazos, el pecho y las piernas, lo cual solo agitaba los nervios dañados por las heridas de los clavos. Más tarde, cuando sobreviene la fatiga, la respiración se hace difícil, exigiendo más y más esfuerzos de la víctima.
+
+**Jim Bishop** en su libro *The Day Christ Was Born and The Day Christ Died*, ha combinado ciencia, información histórica y su imaginación para describir lo que debió haber sido la experiencia de Jesús:
+
+> "Sus brazos estaban ahora en posición de V, y Jesús estaba consciente de dos circunstancias insoportables: La primera era que el dolor de sus muñecas era intolerable, lo que le producía calambres en los brazos, antebrazos y hombros; la segunda era que sus músculos pectorales se paralizaban por momentos. Esto le producía un pánico involuntario, porque si bien podía inhalar aire a sus pulmones, no podía exhalarlo.
+> 
+> En ese instante, Jesús se yergue sobre sus sangrantes pies. Cuando el peso de su cuerpo cae sobre los empeines, el clavo presiona la superficie de la herida. De manera lenta y sin parar, Jesús se ve obligado a erguirse más y más hacia arriba hasta que, por el momento, su cabeza no deja ver el letrero que revela su delito. Cuando sus hombros están al mismo nivel que sus manos, la respiración se vuelve más rápida y más fácil. Al igual que los otros dos, lucha contra el dolor de sus pies para respirar con mayor rapidez durante algunos minutos. Luego, no pudiendo soportar más el dolor que siente debajo, que le acalambran las piernas y los muslos, y esto le arranca quejidos, deja que su torso caiga más y más, mientras mueve las rodillas un poco hacia delante hasta que, dando un profundo suspiro siente que cuelga de las muñecas. Este proceso debió de haberse repetido una y otra vez."
+
+**Edwards, Gabel, y Hosmer**, en *On the Physical Death of Jesus Christ*, dice que "a menos que los guardias le quebraran las piernas a la víctima, las causas fundamentales de la muerte de quien era clavado en una cruz eran probablemente un shock hipovolémico (excesiva pérdida de sangre), un shock traumático, un paro respiratorio o un paro cardíaco."
+
+Los soldados llevaron a Jesús al Gólgota e iniciaron el horrendo procedimiento, que comenzó con darle a la víctima un leve sedante, pero esto no era un acto de misericordia, ya que el proceso de clavar las extremidades de una persona a una viga de madera es más fácil si está drogada. Jesús rechazó la medicina, porque probablemente prefirió mantenerse completamente consciente durante su dura prueba.
+
+Lo desnudaron completamente (para, nuevamente, hacer mayor su humillación) y empujaron su espalda contra la cruz. Un soldado se encargó del pecho, otro de las piernas, mientras que los otros dos le extendían los brazos y penetraban cada una de sus manos con clavos de 15 centímetros de largo y un centímetro de grueso. Después le doblaron las rodillas, pusieron sus pies contra la estaca y le atravesaron cada uno de ellos con un clavo. Luego los soldados levantaron la cruz y dirigieron su base hasta un hueco. De pronto, la cruz quedó en posición vertical y luego cayó su base en el hueco haciendo un ruido sordo. Mientras los soldados ponían cuñas entre la estaca y los lados del hueco para mantener la cruz firmemente derecha, Jesús hizo una serena oración: "Padre, perdónalos porque no saben lo que hacen" (Luc. 23:34). Aquel era apenas otro día más de trabajo para los soldados, nada diferente a los que estaban acostumbrados. Al final del día, poco antes de que oscureciera, bajarían los cuerpos y dejarían preparado todo —maderos, clavos y hueco— para enviar a un nuevo preso a una dolorosa muerte otro día.
+
+Poco antes de las nueve de la mañana del viernes, Jesús colgaba a un poco distancia por encima de la tierra en medio de dos ladrones; probablemente cómplices de Barrabás, que se sorprendieron al ver a otro hombre colgar de una cruz. Sin duda habían oído hablar de Jesús, y podían imaginar lo que había pasado al oír las burlas de los líderes religiosos.
+
+> "Y los que pasaban le insultaban, meneando sus cabezas y diciendo: ¡Ah! Tú que derribas el templo y lo edificas en tres días, ¡sálvate a ti mismo y desciende de la cruz! De igual manera, burlándose de él entre ellos mismos, los principales sacerdotes junto con los escribas decían: *A otros salva; a sí mismo no se puede salvar. ¡Que el Cristo, el rey de Israel, descienda ahora de la cruz para que veamos y creamos!*"
+
+**Marcos 15:29-32**
+
+Los bandidos que estaban a cada lado de Jesús se unieron a los demás en las burlas, mientras que los soldados se repartían las pocas cosas que ellos tenían. Cuando iban a repartirse las vestiduras de Jesús, notaron que su túnica era especial ya que estaba tejida de una sola pieza. En vez de arruinar la prenda, los hombres *echaron suertes, lanzando dados*, para saber quién se quedaría con ella. Entonces, mientras los soldados se sorteaban la prenda y los líderes religiosos se burlaban, algo cambió en el interior de uno de los ladrones.
+
+Uno de los malhechores que estaban colgados le injuriaba diciendo:
+
+> —¿No eres tú el Cristo? ¡Sálvate a ti mismo y a nosotros!
+
+Respondiendo el otro, le reprendió diciendo:
+
+> —¿Ni siquiera temes a tu Dios, estando en la misma condenación? Nosotros, a la verdad, padecemos con razón, porque estamos recibiendo lo que merecieron nuestros hechos; pero este no hizo ningún mal.
+
+Y le dijo:
+
+> —Jesús, acuérdate de mí cuando vengas en tu reino.
+
+Entonces Jesús le dijo:
+
+> —*De cierto te digo que hoy estarás conmigo en el paraíso.*
+
+**Lucas 23:39-43**
+
+Los líderes religiosos siguieron con sus burlas, citando las Escrituras, mientras observan sufrir a su Mesías. "Ha confiado en Dios. Que lo libre ahora si le quiere, porque dijo: 'Soy Hijo de Dios'" (Mat. 27:43).
+
+Cerca del mediodía, más o menos tres horas después de ser crucificado y cuando el sol debió estar en su cenit, una misteriosa oscuridad cubrió a toda la región hasta las tres de la tarde. Cuando las tinieblas comenzaron a desaparecer, Jesús dio un respiro profundo y gritó en arameo, su lengua nativa:
+
+> "Dios mío, Dios mío, ¿por qué me has desamparado?"
+
+**Mat. 27:46**
+
+Quienes hablaban solamente latín o griego no pudieron comprender sus palabras, pero los principales sacerdotes y los escribas las entendieron perfectamente. Jesús estaba citando un salmo escrito por el profeta-rey David varios siglos antes de que se inventara la crucifixión.
+
+> Dios mío, Dios mío, ¿por qué me has desamparado?
+> Porque estás tan lejos de mi salvación y de las palabras de mi clamor?
+> Dios mío, clamo de día, y no respondes; clamo de noche, y no hay sosiego para mí.
+> Pero tú eres santo, tú que habitas en las alabanzas de Israel.
+> Nuestros padres esperaron en ti: esperaron, y tú los libraste.
+> Clamaron a ti y fueron librados; confiaron en ti y no fueron defraudados.
+> Pero yo soy un gusano y no un hombre, objeto de la afrenta de los hombres y despreciado del pueblo.
+> Todos los que me ven se burlan de mí, estiran los labios y mueven la cabeza diciendo:
+> "En el SEÑOR confío; que él lo rescate. Que lo libre, ya que de él se agrada."
+> Los perros me han rodeado, me ha cercado una pandilla de malhechores y horadaron mis manos y mis pies.
+> Puedo contar todos mis huesos; ellos me miran y me observan.
+> Reparten entre sí mis vestidos y sobre mi ropa echan suertes.
+> Pero tú, oh SEÑOR, no te alejes. Fortaleza mía, apresúrate para ayudarme.
+
+**Salmo 22:1-8, 16-19**
+
+Las burlas seguían mientras que de las heridas de Jesús manaba sangre que se mezclaba con la tierra. Cuando pidió algo de beber, alguien puso una esponja en la punta de una rama de hisopo, la metió en una jarra de "vinagre", la bebida "dada a soldados y obreros con las comidas" según **Gerhard Kittel y Geoffrey William Bromiley**, en el *Theological Dictionary of the New Testament*, como ayuda para reducir la fiebre y producir alivio. Jesús echó luego la cabeza hacia atrás, se irguió por última vez para tomar un respiro profundo, y gritó:
+
+> **"Tetelestai"**
+
+Era una expresión griega que la mayoría de los presentes debió haber entendido. Es un término contable. Los arqueólogos han descubierto en papiros recibos por pago de impuestos con la palabra *Tetelestai* escrita en ellos, significando "pagado totalmente". Al dar Jesús su último aliento en la cruz, declaró que la deuda de pecado había sido cancelada, satisfecha completamente. No se requiere más. Nada de buenas obras. Nada de generosos donativos. Nada de penitencias, o de confesiones, o de bautismo, o de..., o de..., o de..., nada. El pago por el pecado es la muerte, y todos nosotros nacimos irremediablemente con esta deuda. Pero Jesús pagó nuestra deuda con su vida, para que podamos vivir para siempre.
+
+Después de haber declarado que la deuda del pecado estaba "pagada totalmente", Jesús inclinó su cabeza. Al entregar su espíritu, la tierra tembló debajo de los pies del centurión y del grupo de verdugos, y se formó una grieta en la inmensa roca que formaba la colina donde ellos estaban. "Y cuando el centurión y los que con él guardaban a Jesús vieron el terremoto y las cosas que habían sucedido, temieron en gran manera". El veterano oficial del piquete de la crucifixión declaró espontáneamente: "Verdaderamente este era Hijo de Dios!" (Mat. 27:54).
+
+## **SUSTITUCIÓN**
+
+Imaginemos por un momento lo que debió haber sido todo esto para **Barrabás**.
+
+Judíos procedentes de todo el imperio habían llenado completamente la ciudad de Jerusalén, lo cual le dio a Pilato la singular oportunidad de imponer un castigo ejemplar a un revolucionario y a dos de sus cómplices. El pensamiento de que él era un problema para los romanos mantuvo a Barrabás sin poder dormir la noche anterior, por el sobrecogedor temor de la agonía que iba a experimentar en la cruz. Se hallaba sentado frotándose el rostro en un calabozo desagradablemente húmedo en lo más sucio de la fortaleza Antonia cuando oyó el ruido de un tumulto que procedía del pretorio.
+
+Mientras el estrepitó de furiousas voces de judíos se oía en el palacio, estrellándose contra la puerta de su celda, fragmentos de palabras caían sobre Barrabás:
+
+> "¡Blasfemia! ¡Sedición! ¡No... amigo... del César!"
+
+Cuando disminuyó el alboroto, Barrabás pudo oír la inconfundible voz de Pilato, pero no pudo entender lo que decía. Sospechó, por la entonación de la voz del procurador, que le había hecho una pregunta a la multitud.
+
+> "¡Barrabás! ¡Barrabás! ¡A Barrabás!"
+
+Otra amortiguada pregunta de Pilato tuvo como respuesta el grito unánime de la muchedumbre:
+
+> "¡Crucificadle! ¡Crucificadle!"
+
+Al revolucionario se le heló la sangre. Había disfrutado de la silenciosa aprobación de los líderes religiosos y del reconocimiento abierto de toda la población, y la mayoría se alegraba por los problemas que les había causado a sus opresores romanos. ¿Qué había sucedido para que, de repente, se acarreara su odio?
+
+Pilato habló de nuevo, y entonces la multitud gritó, esta vez de forma más violenta:
+
+> "¡Crucificadle, crucificadle, crucificadle, crucificadle! ¡Su sangre sea sobre nosotros y sobre nuestros hijos!"
+
+Barrabás se hundió en un rincón del calabozo, se puso las manos en la cabeza, y esperó a que la muerte entrara por la puerta. Menos de treinta minutos después, el premonitorio sonido de las pisadas de los soldados resonó por el corredor, que se hizo más perceptible con cada paso. Por fin, el ruido de las llaves dejó que un poco de la luz del sol entrara al diminuto cuarto por primera vez en muchos días.
+
+> "¡Barbaricus!"
+
+La deliberada distorsión de su nombre significaba "extranjero" en latín, un golpe corto y directo a las costillas judías del hombre.
+
+> "¡Levántate, es tiempo de que saques tu sucio esqueleto de aquí!"
+
+Barrabás se puso de pie y extendió sus muñecas para que el guardia le pusiera las cadenas. Pero este alargó el brazo en medio de la penumbra, agarró a Barrabás por su mugrienta túnica y lo sacó a empujones al corredor. La luz le hirió los ojos obligándolo a cerrarlos, a tiempo que sentía un agudo dolor de cabeza. Otro guardia lo empujó y siguió empujándolo a lo largo del pasillo hasta la puerta principal de la cárcel.
+
+Cuando la puerta se cerró de golpe detrás de él, Barrabás se quedó inmóvil, solo y conmocionado por la enceguecedora luz de la mañana, mirando a través de sus dedos entrecerrados, dejando lentamente que sus ojos se adaptaran a la luz.
+
+Después de varios minutos, Barrabás se dio cuenta de que las voces que lo rodeaban eran las de transeúntes que hablaban arameo, no latín ni griego. Entonces se dio vuelta rápidamente para ver si alguien venía cerca de él, siguiéndole. No había nadie. ¡Era libre! Después de estar varios meses en un calabozo en el que apenas podía moverse por lo estrecho, la inmensidad del mundo exterior le resultaba desorientadora y peligrosa. Ahora podía ir a cualquier parte, pero no se sentía capaz de moverse hasta que sus amigos vinieran a buscarlo.
+
+Durante años, me he preguntado cómo reaccionó Barrabás cuando supo que le habían dado la libertad. Quienes reciben un trasplante de órganos muchas veces quieren conocer a quién se los dio. ¿Quiso Barrabás conocer a quien llevó por él los azotes del lictor, quien llevó su cruz por las calles y hasta la colina del Gólgota, y quien sufrió la agonía que él merecía en verdad? ¿Entendió Barrabás que Jesús lo hizo voluntariamente, no solo por él, sino también por toda la humanidad?
+
+Todos nosotros somos culpables de pecado. Nos hemos comportado de una manera que deshonra a nuestro Hacedor. Los mandamientos del Antiguo Testamento muestran el carácter de Dios, expresan los valores que honran su creación y demuestran nuestro amor por él, pero los hemos violado. El pecado exige un castigo, y ese castigo es la separación eterna de Dios en un lugar de tormento. Porque la justicia no puede ser ignorada.
+
+Sin embargo, la compasión de nuestro Juez que está en el cielo ha retardado el mazo de la justicia. Dios amó tanto al mundo, que dio a Su Hijo para que toda persona que cree en él no sufra la muerte eterna, sino que tenga vida eterna. Jesús, aunque era inocente, tomó el lugar de alguien que merecía pagar el castigo de la muerte por sus pecados. Jesús tomó en la cruz el lugar que le correspondía a otra persona. Sí, Barrabás quedó libre, pero la gracia que él recibió no es más que una ilustración de una verdad mucho más grande y más personal.
+
+**Fue el lugar de usted el que tomó Jesús en la cruz. Él murió por usted.**
+
+Trate de imaginar que Barrabás hubiera dicho: "Libertad? No, gracias. Prefiero sufrir la agonía en la cruz". ¡Jamás! Nadie que entienda bien la naturaleza de la crucifixión rechazaría esta oferta de gracia. Entonces, ¿por qué rechazan las personas el regalo de la vida eterna comprada para ellas por la muerte de Jesucristo en su lugar?
+
+**¿Ha rechazado usted su regalo? ¿Por qué?**
+
+<footer>256</footer>
