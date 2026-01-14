@@ -1944,3 +1944,556 @@ Dios ha llamado a su creación a que halle satisfacción en una relación person
 Jesús, el modelo humano, no es sólo nuestro Salvador; también es nuestro ejemplo. Todos sus sueños se hicieron realidad porque estaban en perfecta armonía con la voluntad del Padre. Pero no olvidemos que él también sufrió injusticias, humillaciones, prejuicios, el abandono, la agonía, tristezas y la muerte. Su camino a la gloria lo llevó a la Vía Dolorosa, hasta el Gólgota y luego a la tumba.
 
 Si la vida de Jesús no fue siempre *"fantástica"*, tampoco lo será la nuestra. Lo *"fantástico"* está al otro lado de nuestra propia resurrección. Hasta que llegue ese momento, busquemos la abundancia en las cosas corrientes de la vida y especialmente durante las pruebas. Invitemos entonces a Jesús a nuestro hogar, a que se siente a nuestra mesa, a que parta el pan de la vida y que, sobre todo, abra nuestros ojos.
+
+## Capítulo dieciocho
+### Palabras de Jesús junto al mar
+
+Algo que nunca abandonaba a Pedro era su apasionamiento, él era todo pasión. Este ardor siempre presente en él, del todo o nada, lo llevaba a tener éxito en cualquier cosa que emprendía. Cuando se trataba del negocio familiar de la pesca, mantuvo las barcas en excelente condición y contrató los mejores marineros que había en Galilea. Era también un activo empresario que amaba el trabajo duro y que se deleitaba dirigiendo a sus hombres. Además, tenía una cierta afinidad con el mar de Galilea, con su tempestuosa e impredecible naturaleza. Esto asustaba a algunos, como a su hermano, Andrés, pero Pedro lo encontraba irresistible. No había otra fuerza en Galilea, aparte del mar, que pudiera compararse con la intensidad del apasionamiento de Pedro, y esto lo provocaba.
+
+Pedro y su hermano, Andrés, no podían haber sido más diferentes. Mientras que Pedro era excelente en las cuestiones del mar, Andrés amaba la sinagoga. Por eso, tan pronto como Pedro tuvo bajo control la flota pesquera y le estaba yendo bien en el negocio, animó a Andrés a marcharse de Galilea para que estudiara en Jerusalén. Mientras que su hermano buscaba educarse, Pedro pescaba y hacía dinero, aunque lo importante para él no era el lucro, sino no dejarse superar por Juan y Jacobo, con quienes mantenía una sana rivalidad, y que eran los únicos hombres cuyos fogosos temperamentos rivalizaban con el suyo.
+
+Pedro sonrió cuando recordó aquellos primeros días. Eran tiempos sencillos, pero le parecía que habían transcurrido décadas entre ese entonces y donde se encontraba ahora, en una oscura habitación de su casa, cerca de Betsaida, en Galilea. La primera euforia de entusiasmo había pasado después de la resurrección de Jesús, y sus seguidores esperaban con ansiedad nuevas órdenes de él. Jesús les había dicho a todos que le esperaran en Galilea, lo cual para Pedro era magnífico, porque lo suyo era el mar. Esto le había permitido regresar a su casa y pensar en lo que iba a hacer el resto de su vida, quizás volver a la pesca, mientras que los demás se ocupaban de formar un nuevo gobierno y planear la destitución de Pilato y Herodes Antipas.
+
+Había transcurrido más de una semana y el silencio estaba comenzando a preocupar a Pedro. Jesús había sido muy cordial con él en los dos encuentros anteriores, pero nunca mencionó el asunto que ocupaba la mayor parte de sus pensamientos. Le dolía que Jesús dijera algo, ya que esto lo tenía en ascuas. Estaba seguro de que Jesús estaba esperando el momento, y que al final se lo diría simple y llanamente. Pedro imaginó varias veces la conversación que tendrían. *Mira, Pedro, creo que ambos sabemos que tú no estás hecho para tener un liderazgo en el nuevo reino. Valoro la pasión con qué te lanzas a todo lo que emprendes, pero eres demasiado impredecible. Yo necesito a alguien como Juan, quien ha aprendido a controlar su impulsividad y a conducirse con serenidad. Necesito a alguien con quien pueda contar. ¿Tú eres un excelente pescador? ¿Por qué, más bien, no vuelves a tus redes y sigues haciendo lo que sabes?*
+
+La desilusión y la vergüenza eran más de lo que él podía soportar. Los demás hablaban de los días futuros e imaginaban las posiciones que ocuparían, pero él apenas podía reunir las fuerzas necesarias para salir de la habitación. ¿Qué había pasado? ¿Por qué las cosas habían salido tan mal para él?
+
+### "SIGUEME"
+
+Pedro recordó la primera vez que puso sus ojos en él, y el apodo que él le dio. Andrés había sido discípulo de Juan el Bautista durante varios meses, y le avisó a los suyos que el Mesías aparecería pronto. La familia estaba comprensiblemente escéptica, pero Andrés no era fácil de engañar. Si alguien podía reconocer a un impostor, ese era él. Por eso, cuando Pedro viajó a Jerusalén para celebrar una de las numerosas fiestas de Israel tomó con seriedad las palabras de Andrés cuando éste le dijo *"Hemos encontrado al Mesías"* (Juan 1:41). Pedro entonces siguió a su hermano a una modesta casa que estaba en las afueras de la ciudad, para conocer al hombre que habría de cambiar su vida para siempre.
+
+Jesús los saludó con el acostumbrado abrazo y el breve beso en ambas mejillas. Pero antes de quitar las manos de sus hombros, sacudió a Pedro firmemente, y le dijo: *"Simón, hijo de Jonas, te voy a llamar Cefas [Pedro, en griego], ¡porque eres sólido como una roca!"*. Pedro tomó esto como un cumplido venido del más reciente y dinámico rabí de Jerusalén.
+
+Después de pasar algunos días con Jesús, Pedro coincidió con Andrés: *"Hemos encontrado al Mesías"*. Le habría gustado quedarse en Jerusalén para aprender más de ese hombre tan extraordinario de Nazaret, pero el negocio de la pesca no le permitía estar ausente durante mucho tiempo. Por tanto, volvió a Galilea, con la disposición de obedecer al nuevo rey cuando llegara el momento de que éste ascendiera al trono. Pedro sabía que Andrés lo mantendría informado.
+
+Pocas semanas después, Pedro y sus hombres habían terminado una duracha noche de trabajo en el mar, y habían llevado sus barcas a la playa donde Jacobo y Juan estaban limpiando sus redes. Pedro y los hijos de Zebedeo combinaban con frecuencia sus recursos, especialmente en los momentos difíciles; y, por alguna razón, la pesca no había sido buena últimamente.
+
+Un gran número de personas de la cercana Capernaum estaban sentadas en una suave colina cerca de la costa, escuchando la potente voz de un maestro. No era una escena infrecuente, aunque esta vez la cantidad de personas era mucho más grande de lo que Pedro estaba acostumbrado a ver. Pero casi no le dio importancia, mientras él y sus hombres arrastraban sus redes a la playa y comenzaban la tarea de limpiarlas, remendarlas y desenmarañarlas. Mientras los hombres bromeaban entre sí y reían amablemente para ponerle fin a su aburrimiento, no se dieron cuenta de que la voz del maestro ya no resonaba en la playa, sino que éste se había acercado para pedir un favor.
+
+Pedro lo reconoció de inmediato: Era el Mesías. Este quería utilizar una de las barcas como una tribuna, lo cual era una brillante idea desde el punto de vista de un orador. Las tranquilas aguas y la orilla de la playa creaban un anfiteatro natural con una acústica extraordinariamente buena. Sin embargo, para el pescador, era una petición particularmente molesta por no haber pescado nada durante toda la noche. Sin embargo, Pedro ordenó pacientemente a sus hombres que enrollaran las redes, las pusieran de nuevo en la barca y que remaran a poca distancia de la playa.
+
+Jesús concluyó su enseñanza y despidió a la gente; Pedro pensó entonces que Jesús le pediría que lo llevara a tierra. Pero el rabí lo miró, y le dijo: *"Vamos a pescar. Bogad mar adentro, y echad vuestras redes para pescar"*. Simón respondió, diciendo: *"Maestro, toda la noche hemos trabajado duro y no hemos pescado nada. Pero por tu palabra echaré la red"* (Luc. 5:4,5).
+
+La carga de peces casi hundió su barca, y también la de Jacobo y Juan, que habían venido para ayudar. Para Pedro, esta fue la primera de muchas lecciones: las buenas intenciones y los firmes esfuerzos nos son suficientes. Solo Jesús puede hacer productiva una vida que, de lo contrario, sería infructuosa.
+
+En ese mismo momento, Pedro dio un salto después del llamamiento que le hizo el Mesías: *"Ven en pos de mí, y te haré pescador de hombres"* (compare Mar. 1:17). No sabía donde le llevaría ese llamado, qué aventuras prometía o qué peligros implicaría. La gente se lo preguntaba, pero él no sabía qué decirles. Pero no le importaba que sus vecinos pensaran que era un tonto por haberlo hecho. Pedro había respondido al llamamiento de Jesús con todo gusto, decidido a ir hasta el final.
+
+### "VEN A MÍ"
+
+En el íntimo consuelo que hallaba en el refugio de su habitación, Pedro sonrió al recordar estas cosas con dolor y alegría, y luego puso cara de vergüenza. Muchas veces se había lanzado a algo con imprudente abandono, solo para quedar y sentirse después como un tonto, como la vez que él y los otros discípulos estuvieron remando con mucha dificultad en medio de una terrible tormenta. Jesús les había ordenado que se le adelantaran en el mar, pero cuando tuvieron problemas para seguir adelante, su maestro vino en rescate de ellos.
+
+A eso de las cuatro de la mañana, Jesús iba hacia él caminando sobre el agua. Estaban muertos de miedo. *¡Es un fantasma!*, dijeron, gritando aterrorizados.
+
+Pero Jesús se apresuró a tranquilizarlos.
+
+> *—Ánimo, soy yo. No tengan miedo.*
+
+Pedro dijo entonces, de repente y con atrevimiento:
+
+> *—Maestro, si eres tú en realidad, llámame para ir a ti sobre el agua.*
+
+El le dijo:
+
+> *—Ven.*
+
+> Pedro salió de la barca y caminó sobre el agua en dirección a Jesús. Pero cuando miró hacia abajo y vio las olas que se agitaban debajo de sus pies, tuvo miedo y comenzó a hundirse. Entonces gritó:
+> 
+> *—¡Sálvame, Maestro!*
+
+> Jesús no titubeó. Se inclinó y tomó la mano de Pedro. Entonces le dijo:
+> 
+> *—¿Qué te pasó, miedoso?*
+
+Ambos subieron luego a la barca, y el viento se calmó.
+
+**Mateo 14:25-32, The Message**
+
+En verdad había sido un *"miedoso"*! Él era un gran nadador, y más de una vez había caído en el agua en los años que tenía en el mar. ¿Qué le había pasado? En una fracción de segundo, su mente había pasado de una absoluta confianza en Jesús, del tamaño de las olas que tenía sobre sus pies, al hecho de que sólo él había tenido la temeridad de salir de la embarcación, para luego verse de repente con el agua al cuello.
+
+Los otros discípulos no le dejarían olvidar pronto ese día! Ni tampoco aquel en el que recibió de Jesús una maravillosa aprobación y un fulminante regaño dentro de los mismos cinco minutos. En las afueras de Cesarea de Filipo, Jesús les había hecho una sencilla pregunta: *"¿Quién dicen los hombres que soy?"*. Algunos lanzaron nombres como el de Juan el Bautista, o los de grandes profetas del Antiguo Testamento, o los de Elías y Jeremías. Pero cuando Jesús hizo la pregunta a sus discípulos, éstos se quedaron callados de repente.
+
+> *—Y vosotros, ¿quién decís que soy?*
+> 
+> Simón Pedro dijo:
+> 
+> *—Tú eres el Cristo, el Mesías, el Hijo del Dios viviente.*
+> 
+> Jesús respondió:
+> 
+> *—;Dios te bendiga, Simón, hijo de Jonas! Mi Padre que está en el cielo, Dios mismo, te reveló el secreto de quién soy yo en verdad.*
+> 
+> *Y ahora voy a decirte quién eres tú, en realidad. Tú eres Pedro, una roca. Esta es la roca sobre la cual edificaré mi iglesia, una iglesia tan grande y poderosa que ni las puertas del infierno podrán detenerla. Pero eso no es todo. Tendrás total y libre acceso al reino de Dios, las llaves para abrir y cerrar cada puerta: Ya no habrá más barreras entre el cielo y la tierra, entre la tierra y el cielo. Un sí tuyo será un sí en el cielo, y un no tuyo será un no en el cielo.*
+> 
+> **Mateo 16:15-19, The Message**
+
+Pedro se sintió muy bien en ese momento. Estaba un poco por encima de los demás. ¡Iba a tener una autoridad inmensa en el nuevo reino! ¿Y por qué no? ¿Quién era más dedicado que él? Pero su exaltado lugar de honor no duró mucho tiempo. Jesús reveló que su propio camino a la gloria tendría que atravesar la Vía Dolorosa.
+
+> *Es necesario que el Hijo del Hombre padezca muchas cosas, y que sea desechado por los ancianos, por los principales sacerdotes y por los escribas, y que sea muerto y que resucite al tercer día*
+
+**Lucas 9:22**
+
+A Pedro no le gustaron para nada esas palabras tan negativas. Esa no era la manera de dirigir e inspirar a los demás. Esa no era la manera de disfrutar de lo mejor de la vida ahora mismo. Como la roca que él era, sintió que era su deber aconsejar a su líder.
+
+> Pedro le tomó aparte y comenzó a reprenderle diciendo:
+> 
+> *—Señor, ten compasión de ti mismo. ¡Jamás te suceda esto!*
+> 
+> Entonces él volviéndose, dijo a Pedro:
+> 
+> *—¡Quítate de delante de mí, Satanás! Me eres tropiezo, porque no piensas en las cosas de Dios, sino en las de los hombres.*
+
+**Mateo 16:22,23**
+
+Pedro aprendió, entonces, la verdad en cuanto al liderazgo en el reino.
+
+> Entonces Jesús dijo a sus discípulos
+> 
+> *—Si alguno quiere venir en pos de mí, niéguese a sí mismo, tome su cruz y sígame. Porque el que quiera salvar su vida la perderá, y el que pierda su vida por causa de mí la hallará.*
+
+**Mateo 16:24,25**
+
+Pedro recordó que sintió el regaño, pero al mismo tiempo se sintió animado para mantenerse fiel. Pensó que Jesús había cambiado el objetivo de la conquista al martirio, y resolvió, por tanto, seguir a su líder hasta la muerte.
+
+### "VUELVE A MÍ"
+
+En la víspera de su arresto, Jesús animó a sus discípulos a dejar que el amor de unos hacia otros se convirtiera en su característica distintiva. Después los preparó para las horas difíciles que seguirían. *"Todos vosotros os escandalizaréis de mí esta noche, porque está escrito: Heriré al Pastor, y las ovejas del rebaño serán dispersadas. Pero después de haber resucitado, iré delante de vosotros a Galilea"* (Mat. 26:31, 32).
+
+Pero Pedro no quiso saber nada de eso. *"Aunque todos se escandalicen de ti, yo nunca me escandalizaré"* (Mat. 26:33).
+
+Mientras Pedro permanecía sin moverse en medio del oscuro silencio de su habitación en Betania, tuvo un estremecimiento al pensar en la audacia de sus palabras, y para empeorar las cosas, lo que Jesús le había dicho tan tiernamente seguía grabado indeleblemente en su conciencia: *"Simón, Simón, he aquí Satanás os ha pedido para zarandearos como a trigo. Pero yo he rogado por ti, que tu fe no falle. Y tú, cuando hayas vuelto, confirma a tus hermanos"* (Luc. 22:31, 32)
+
+Para las personas de buena conciencia, no hay juez ni verdugo más severo que su propia mente. Pedro se había mantenido en un doloroso silencio durante varios días después de regresar a Betsaida. Seis de sus amigos más cercanos de entre *"los doce"*, habían venido a darle ánimo, pero Pedro seguía inconsolable y no quiso ver a nadie. Finalmente, no pudo soportar más sus autorrecriminaciones. El mar lo llamaba... era tiempo de volver a lo que le era familiar. Se dirigió entonces a la playa, y al pasar junto a sus camaradas discípulos, les dijo por encima del hombro: *"Voy a pescar"*. Sus amigos se miraron unos a otros, y le siguieron.
+
+Los hombres se metieron en sus barcas, remaron mar adentro, echaron sus redes, y después de una larga noche de trabajo no pescaron nada, a pesar de sus numerosos intentos. La noche dio paso a los primeros rayos del amanecer, y los hombres se dirigieron a un sitio familiar de la playa, donde podrían lavar las redes y dejar que se secaran para usarlas el día siguiente. Entonces, una viva luz color naranja atrajo su atención mientras iban hacia el lugar acostumbrado. Cuando estaban a unos cien metros de distancia, una figura borrosa los llamó, diciendo: *"Hijitos, ¿no tenéis nada de comer?"* (Juan 21:5).
+
+La mayoría de los pescadores le dirán a usted que esta no es una buena pregunta después de una noche larga e improductiva, ¡y definitivamente no la manera más delicada de hacerla! La respuesta probablemente fue un seco *"no!"*. Pero los hombres tenían que ser respetuosos. El hecho de que les dijera *"hijitos"*, les hizo pensar que se trataba de un maestro o de un anciano de la comunidad.
+
+> *"Echad la red al lado derecho de la barca, y hallaréis"* (Juan 21:6).
+
+Pedro le lanzó una mirada burlona a Juan, quien le respondió con un encogimiento de hombros. Entonces lanzaron la red por la borda, a la derecha, dieron después una gran vuelta con la barca, y luego comenzaron a halar la red. Al comienzo, Pedro pensó que la red se había enredado con algo en el fondo. Un enérgico tirón a la cuerda principal inclinó la barca; Pedro casi no pudo halarla, pero luego se movió. Los demás hombres se pusieron detrás de Pedro para ayudarlo, y sacaron la red a la superficie, en la cual algo se movía relucientemente y agitaba ruidosamente al agua. ¡Había peces! ¡Peces grandes! ¡Muchos peces!
+
+Algunos de los otros discípulos que estaban en la segunda barca remaron frenéticamente para ayudar a la primera, y para asegurarse de que la carga de peces no la hundiera. Cuando cesó la agitación por un momento, Juan recordó el día en que Jesús los llamó para que fueran sus discípulos. Entonces le dio un leve codazo a Pedro, y le dijo: *"Es el Señor"*.
+
+Pedro tomó entonces su túnica de la cubierta, se lanzó de inmediato al mar y nadó hasta la playa. La perspectiva de ver a Jesús de nuevo hizo que olvidara la causa de su vergüenza, al menos mientras agitaba con violencia el agua en su gozosa carrera hacia la costa. Con cada brazada quedaba, los otros discípulos se reían de él. Felizmente, su fracaso no le había quitado al apasionado discípulo su cualidad más encantadora. Pedro llegó fatigado a la playa, y encontró a Jesús ocupado del fuego de unas brasas. El olor del pescado asado le recordó lo hambriento que estaba por la larga e improductiva noche de trabajo. Se arrodilló, tomó un pescado del fuego, lo descortezó y comenzó a comer. Los primeros bocados de comida y el ver a Jesús le dieron a su cuerpo una fortaleza que no había tenido durante semanas; y el cálido resplandor del fuego sobre sus mejillas le recordó lo frío que había estado antes. En el momento que ya le había vuelto el calor al cuerpo, y su estómago estaba lleno, Jesús dirigió su mirada hacia los esforzados discípulos que acaban de llegar a la orilla con la abultada red. *"Traed de los pescados que ahora habéis pescado"* (Juan 21:10). Pedro entonces se abalanzó a ayudar a sus amigos.
+
+Después de haber contado los peces, ciento cincuenta y tres, y de ponerlos en la playa, los discípulos se sentaron junto al radiante fuego.
+
+### "MANTENTE SIGUIENDOME"
+
+Las fogatas tienen la capacidad de calmar a las personas que se toman el tiempo para disfrutar de ellas. La conversación da paso, por lo general, a un silencio reflexivo. Luego, cuando alguien habla, casi siempre dice algo sensible, profundo o que impresiona.
+
+Pedro se sintió contento por primera vez en casi dos semanas. Siete de sus más cercanos compañeros estaban acostados de espaldas o mirando el fuego, con sus estómagos llenos con los pescados asados que Jesús había provisto y que ellos también habían sacado. Las cicatrices de las manos de Jesús ya no le producían sufrimiento. La agonía del Mesías había quedado para siempre en el pasado; delante solo estaba la gloria de Jesús. Las marcas de los clavos tenían ahora sentido, y eran un mudo recordatorio del invalorable regalo que Pedro y los demás seguidores habían recibido.
+
+Jesús rompió el silencio con una pregunta: *"Simón hijo de Jonas, ¿me amas tú más que estos?"* (Juan 21:15).
+
+La palabra traducida como **amar** utilizada por Juan cuando puso por escrito la conversación, fue **agape**, que se refiere a una clase específica de amor envuelta por la emoción, pero no alimentado por ella. El amor **agape** ama primero a Dios y luego al prójimo como a uno mismo, y ama a los amigos y a los enemigos por igual. Perdona las faltas y halla su máxima expresión cuando es más inmerecido ese amor. Lejos de ser impetuoso, **agape** es el amor que nace de la entrega.
+
+La pregunta hirió a Pedro, produciéndole una gran tristeza. Fue la que él mismo se había hecho mil veces la noche en que estuvo alrededor de otra fogata y negó, aun con maldiciones, conocer a su Maestro. La comparación de *"más que estos"* hizo resurgir en su pecho el dolor que había sentido en las últimas dos semanas. Era como si una gigantesca piedra, capaz de quitarle la vida, hubiera caído sobre él. Entonces miró a los otros discípulos, que tenían puestos los ojos en las estrellas o en las ardientes brasas. *"Sí, Señor, tú sabes que te amo"* (Juan 21:15).
+
+Cuando Pedro respondió, Juan utilizó una palabra diferente para amor: **fileo**. Es el afecto cálido y profundo que uno le tiene a su familia y a sus amigos más cercanos. Era una palabra favorita entre los gentiles y que, en verdad, no se utilizaba de manera descuidada o ligera. Pero Pedro entendió el significado de la pregunta de Jesús. El afecto no era el asunto que estaba en juego. Era la entrega.
+
+Jesús le dijo: *"Apacienta mis corderos"* (Juan 21:15)
+
+La invitación no fue una sorpresa para nadie, excepto para Pedro. Él ya no se sentía calificado para ser un *"pescador de hombres"*, por no decir ser el pastor de los seguidores de Jesús. Después de todo, ¿quién era él para hablar a los demás de entrega? Es verdad que lo había dado todo por más de tres años y que había sido sincero en todo lo que dijo en el aposento alto, pero cuando vino la crisis, su apasionada promesa de ser fiel había terminado en nada, como la anterior noche de trabajo en el mar. Si ni siquiera podía sacar un pez sin la ayuda de Jesús, ¡mucho menos podría ser un líder!
+
+Unos pocos minutos de silencio hicieron pensar a Pedro que no se hablaría más del asunto, porque las ovejas necesitaban un pastor competente. Pero Jesús le preguntó: *"Simón, hijo de Jonas, ¿me amas [agape]?"*
+
+*"Sí, Señor; tú sabes que te amo [fileo]"*.
+
+*"Apacienta mis ovejas"* (Juan 21:16).
+
+Otra vez: **agape**... **fileo**... invitación... silencio.
+
+El apasionamiento de Pedro le impedía muchas veces ver la verdad sobre sí mismo. Mientras se tratara de dar una batalla externa, ya fuera contra el mar de Galilea o contra un grupo de soldados, su apasionamiento podía verse como un verdadero amor **agape**. Pero sin tormentas a las cuales sobrevivir ni enemigos que vencer, y después de haberse quedado sin apasionamiento ni orgullo que tomara su lugar en el vacío que se había producido en su vida, Pedro se volvió muy consciente de lo vacío que estaba, y que siempre lo había estado.
+
+La respuesta usando el término **fileo** de Pedro no era la que alguno de los dos quería, pero era sincera. Felizmente, a Jesús le importa más nuestra integridad que nuestra perfección.
+
+Jesús le dijo por tercera vez:
+
+> *—Simón hijo de Jonas, ¿me amas [fileo]?*
+> 
+> **Juan 21:17**
+
+Esta vez, Jesús usó el término **fileo**.
+
+Pedro se entristeció de que le dijera por tercera vez *"¿Me amas?"*. Y le dijo:
+
+> *—Señor, tú conoces todas las cosas. Tú sabes que te amo [fileo].*
+
+Jesús le dijo:
+
+> *—Apacienta mis ovejas.*
+
+**Juan 21:17**
+
+Tenemos la tendencia a empujar a los demás y, por tanto, a nosotros mismos, a entrar en ciertos moldes. Tenemos un molde para los líderes. Queremos que sean gregarios, comprensivos, experimentados, inteligentes, seguros de sí mismos, visionarios y optimistas. No somos proclives a tolerar sus fracasos, ni queremos que se den ínfulas de grandeza. Por esa razón nos hacemos en la mente un modelo de perfección que nadie es capaz de cumplir.
+
+Pedro tenía un molde. Allí, junto a la fogata, agotado toda la vida por su improductiva noche de pesca, le ofreció al Señor los pedazos rotos de su molde, diciéndole en realidad: *"Esto es todo lo que tengo"*. Y la respuesta que hubo siempre en la reiterada invitación de Jesús fue: *"Es todo lo que quiero"*.
+
+Después de un largo silencio, Jesús se puso de pie y le indicó a Pedro con un gesto de la mano que lo siguiera. Lo que tenía que decir luego, era para sus oídos solamente. Después de alejarse un poco de los demás, Jesús le dio una profecía que puso en perspectiva el apasionamiento del discípulo caído, apasionamiento que Pedro había llegado a aborrecer. Era un anuncio que demostraba la soberanía de Dios, y que confirmaba su capacidad de transformar debilidad en fortaleza.
+
+> *...- De cierto, de cierto te digo que cuando eras más joven, tú te cenías e ibas a donde querías; pero cuando seas viejo, extenderás las manos, y te cenirá otro y te llevará a donde no quieres.*
+> 
+> *Esto dijo señalando con qué muerte Pedro había de glorificar a Dios. Después de haber dicho esto le dijo:*
+> 
+> *—Sígueme.*
+
+**Juan 21:18,19**
+
+El apasionamiento que lo había impulsado en todos los desafíos que había enfrentado en la vida, y que habían alimentado su búsqueda de grandeza en el reino, provenían de un lugar profundo que había en Pedro. Vista desde afuera, parecía ser una pasión santa, pero estaba al servicio del peor ídolo de todos: El ego; y como sucede con toda búsqueda insustancial, la de Pedro lo había llevado a la decepción.
+
+Mientras Pedro escuchaba a Jesús junto al mar, aprendió a aceptar el vacío que había en su vida. Vacío ya de su apasionamiento y de su orgullo, estaba preparado para ser llenado. Sabemos por relatos posteriores que Pedro sufrió prisiones y persecuciones con sorprendente, algunos dirían, sobrenatural, resolución, y al final murió martirizado en una cruz. Pero la transformación que experimentó no fue instantánea. Tenía muchas más cosas que aprender.
+
+> Pedro dio vuelta y vio que les seguía el discípulo a quien Jesús amaba. Fue el mismo que se recostó sobre su pecho en la cena y le dijo: *"Señor, ¿quién es el que te ha de entregar?"*. Así que al verlo, Pedro le dijo a Jesús
+> 
+> *—Señor, ¿y qué de éste?*
+> 
+> Jesús le dijo:
+> 
+> *—Si yo quiero que él quede hasta que yo venga, ¿qué tiene esto que ver contigo? Tú, sígueme.*
+
+**Juan 21:20-22**
+
+Juan había sido el primer discípulo que volvió donde estaba Jesús, después de huir, y que había permanecido con él a través de sus juicios y crucifixión. Fue también el hombre a quien Jesús le confió el cuidado de su madre. De todos los discípulos, Juan había sido la imagen de una fidelidad constante.
+
+El alma humana caída no se vacía del orgullo sino después de mucho tiempo. Hay hábitos que son difíciles de erradicar. Los primeros pasos de Pedro en el ministerio prometían ser firmes, pero dio un traspié cuando quitó sus ojos de Jesús para hacer una comparación. *"Pero, Señor, ¿y qué de Juan?"*. Jesús le dijo: *"Si yo quiero que él quede hasta que yo venga, ¿qué tiene esto que ver contigo? Tú, sígueme"*.
+
+El mandamiento final de Jesús se traduce mejor de esta manera: *"Tú, mantente siguiéndome"*, no a Juan, no a ningún otro hombre importante; ni siquiera a tus nobles ambiciones. *"Tú, mantente siguiéndome"*. Deja que tu apasionamiento se convierta en la búsqueda apasionada de mí. Al seguirme tú, las ovejas me seguirán también.
+
+### TRAS LA BUSQUEDA APASIONADA DE PEDRO
+
+Pedro habría sido un candidato muy bueno para un cargo público en nuestra democrática, empresarial y automotivada cultura. Admiramos al hombre que triunfa en la vida por esfuerzo propio. Aplaudimos a quienes desean tener más poder y riqueza, a quienes inspiran a los demás con su contagiosa pasión por conquistar nuevos territorios o por vencer los problemas más difíciles. Esas son las personas a quienes nos encanta seguir.
+
+Jesús buscaba cualidades muy distintas en los hombres que él escogió para llevar a cabo su visión. Eligió hombres con poca educación formal, aunque la mayoría de ellos habrían aprendido a leer y a escribir en la sinagoga. Seleccionó hombres con fallas evidentes, aunque ninguno de ellos, con excepción de Judas, estuvo dedicado al mal como los corruptos líderes religiosos. Escogió hombres cuya voluntad no pudiera ser doblegada fácilmente, sino que pudiera o quisiera inclinarse a seguir la voluntad divina. Los once discípulos fueron personas extraordinarias, solo por su apasionada búsqueda de Cristo y a su llamamiento.
+
+Usted, también, ha sido llamado. El imperativo de: *"Tú, mantente siguiéndome a mí"*, no está limitado a Pedro. El destino de Pedro iba a ser muy diferente al de Juan. Asimismo, el llamamiento suyo es diferente al de cualquier otra persona. Pero el llamado sigue siendo el mismo: *"¡Sígueme!"*
+
+Su llamamiento afectará, sin duda, a otras personas, pero la respuesta deberá darla solamente usted. Pero además de ser único, el llamamiento también es costoso y brinda grandes satisfacciones. Probablemente le llevará a situaciones que le amedrentarán, pero entonces se sentirá de lo más seguro, sabiendo que es el momento correcto. El peligro es real, pero no hay ningún lugar más seguro en la tierra que la senda que Dios ha ordenado para usted. Lo que produce mayor satisfacciones estará en el centro de su voluntad.
+
+Al pensar en el llamamiento especial que le hace Dios, considere tres enseñanzas importantes a partir del llamamiento hecho a Pedro.
+
+**Primero:** Cuando el Señor le da la oportunidad de transformar la improductividad en productividad, esté abierto al cambio. Tenga cuidado de no interpretar las circunstancias como indicadores de la voluntad de Dios. Observe que Jesús le pidió a Pedro que dejara su profesión de pescador, que era un cambio importante de dirección, a pesar de haberle dado una pesca milagrosa y abundante. El llamamiento no será audible. No busque zarzas ardientes ni que le hable un profeta. Su llamamiento se hará claro cuando su mente sea transformada por la lectura de las Escrituras y la obra interna del Espíritu Santo. El Señor nunca nos oculta su voluntad. Con el tiempo, si usted obedece a su llamado inicial de seguirle, llegará a descubrir su destino. La dificultad estará en saber evitar que otros intereses desvíen su atención.
+
+**Segundo:** Cuando el Señor está planeando moverle en una nueva y desafiante dirección, espere tener un periodo de un profundo examen de conciencia. Tener claridad puede ser un desafío difícil cuando otras cosas claman por tener su atención. Los días posteriores a la resurrección de Jesús fueron probablemente de inactividad para Pedro, pensando que había sido desechado. Pero solo cuando llegó el momento correcto, fue que Jesús confrontó a su antes impetuoso discípulo con un nuevo desafío. El llamamiento de Pedro se produjo cuando la humillación de su fracaso reverberaba en su cabeza y los hombres que trabajaban para él preparaban una gran carga de pescado para el mercado. Las circunstancias nos podrían hacer pensar que en Pedro habría un mejor pescador que un líder espiritual. Pero, para él, la prueba decisiva fue el amor. No deje de notar esto. ¿A quién amaba él? ¿Sería el honrar ese amor su primera prioridad? Después que estas preguntas fueron respondidas, su futuro se hizo claro.
+
+**Tercero:** Cuando el Señor le muestre claramente que debe seguirle en esta nueva dirección, concéntrese totalmente en él y no permita que ninguna comparación con otros le distraiga. Aunque Pedro había oído el llamamiento de Jesús por cuarta vez, no pudo resistir la tentación de dar una mirada por encima del hombro. Debió haber pensado: *¿Quién soy yo, comparado con el fiel Juan?* Pero Jesús le aclaró el asunto. El responsable de Juan es Juan. El responsable de Pedro es Pedro. Y cada uno de ellos recibió el mismo mandamiento: *"Sígueme"*.
+
+Si alguien se hubiera descalificado a sí mismo como líder de los primeros cristianos, esa persona habría sido la que negó su relación con Jesús cuando la situación se puso difícil. ¿Quién querría tener como líder del pueblo de Dios a una persona gobernada por las emociones, vacilante e impetuosa? Después de que Pedro pudo reconocer su incompetencia, su absoluta incapacidad de cumplir con su destino sin la obediencia a su única verdadera responsabilidad, se convirtió en un líder firme. Cuando observamos su historia posterior en el libro de los Hechos, podemos ver claramente que cuando Pedro mantenía su mirada puesta en Jesús y le obedecía, otros seguían también al Señor, y eran miles quienes lo hacían.
+
+Lo que necesitamos hoy en día es que haya más Pedros.
+
+## Capítulo diecinueve
+### Desafiados por Jesús en el monte
+
+Los ángeles deberán haberse preguntado qué estaba pensando Dios. Su plan de convertirse en hombre en la persona de Jesucristo había sido ingenioso. Solo un ser humano podía representar a la humanidad y llevar el castigo que ésta merecía, pero únicamente Dios podía derrotar la muerte. Sin embargo, dejar en las débiles e inseguras manos de la humanidad la responsabilidad de llevar la buena nueva, debió haber parecido algo preocupante para ellos.
+
+Joe Aldrich comienza su libro *Lifestyle Evangelism* (Evangelismo como estilo de vida), con una interesante fábula.
+
+> El ángel Gabriel se acercó [a Jesús], y le dijo:
+> 
+> —Señor, debiste haber sufrido terriblemente en manos de los hombres en la tierra.
+> 
+> —Sí —dijo él.
+> 
+> —Y —continuó diciendo Gabriel— ¿saben ellos todo lo que les amaste y lo que hiciste por ellos?
+> 
+> —Oh, no —dijo Jesús —todavía no. En este momento lo saben sólo unas pocas personas en Palestina.
+> 
+> Gabriel estaba perplejo.
+> 
+> —¿Qué has hecho, entonces —preguntó— para que todo el mundo sepa cuánto los has amado?
+> 
+> Jesús respondió:
+> 
+> —Les pedí a Pedro, Jacobo, Juan y otros más que hablen a la gente acerca de mí. Quienes reciban la información la comunicarán a su vez a otras personas. Y de esta manera mi historia sería llevada a los lugares más remotos de la tierra. Al final, toda la humanidad se habrá enterado de quién soy y de lo que hice por ella.
+> 
+> Gabriel frunció el ceño, escéptico. Él conocía muy bien la pobre madera de que estaban hechos los hombres.
+> 
+> —Si —dijo—. ¿Y si a Pedro y a Jacobo se les acaban las fuerzas? ¿Y si las personas que vendrán después de ellos se olvidan de hacerlo? ¿Y si la gente del siglo XX no habla a los demás de ti? ¿No has hecho otros planes?
+> 
+> Jesús respondió:
+> —No, no tengo otro plan. Estoy contando con ellos.
+
+Durante un período de cuarenta días, después de su resurrección, Jesús se apareció en docenas de ocasiones a centenares de discípulos que estaban en Judea y Galilea. Anduvo con ellos, comió con ellos, les impartió enseñanzas y disfrutó de su compañía. Jesús tomó ese tiempo para restaurar, tranquilizar y reanimar a los ciudadanos de su reino después de haber sufrido ellos la traumática experiencia de ver a su Rey torturado y asesinado. Muchos de ellos, si no la mayoría, habían considerado que la causa del Mesías había sido derrotada por el mal, y por eso necesitaban ser reunidos y reanimados para el trabajo que tenían por delante. Jesús iba a preparar a sus seguidores en dos reuniones que llevaría a cabo en la cima de un monte. En la primera, realizada en Galilea, les dio el plan (Mat. 28:16-20); en la segunda, en Judea, les dio su poder (Hech. 1:3-11).
+
+### EL EXTRAORDINARIO PLAN
+
+El nombre del monte de Galilea no nos ha sido identificado en los relatos del Evangelio; bien pudo haber sido el monte donde Jesús solía predicar; pudo haber sido la distante cumbre donde Pedro, Jacobo y Juan vieron brillar a Jesús con la luz divina durante un momento (Mat. 17:1,2); o pudo haber sido simplemente un lugar alto desde el cual los discípulos pudieran verlo desde una gran distancia. Pararse en la cumbre del monte Tabor, por ejemplo, es ver una inmensa extensión de llanura por todos lados. Aunque su cima está a menos de 70 metros sobre el nivel del mar, uno siente que puede ver la totalidad de la tierra.
+
+Fue este monte al cual Dios llevó a Abraham, al padre de los hebreos, a quien dijo: *"A tu descendencia daré esta tierra"* (Gen. 12:7). Los seguidores de Jesús debieron haber pensado que éliba a renovar pronto la alianza de Dios y comunicarles el plan mediante el cual reclamarían la tierra prometida para el nuevo reino; y en cierta manera él haría eso. Les presentó su plan para el reino de una manera clara y simple. Muchos llaman la *"Gran Comisión"* a esta orden divina.
+
+> *Toda autoridad me ha sido dada en el cielo y en la tierra. Por tanto, id y haced discípulos a todas las naciones, bautizándolos en el nombre del Padre, del Hijo y del Espíritu Santo, y enseñándoles que guarden todas las cosas que os he mandado. Y he aquí, yo estoy con vosotros todos los días, hasta el fin del mundo.*
+
+**Mateo 28:18-20**
+
+El plan es *"hacer discípulos a todas las naciones"*. El verbo principal que se encuentra en la orden de Jesús dada a los discípulos es **"hacer discípulos"**. Sorprendentemente, no es *"ir"*. No es *"bautizar"*. No es *"enseñar"*. Jesús incluyó estos otros tres verbos para apoyar la idea principal. La meta de la llamada Gran Comisión es hablar a las personas de la oferta de salvación por medio del sacrificio de Jesucristo, quien llevó su castigo por el pecado y quien les da la vida eterna como un don gratuito. Por otra parte, los seguidores de Jesús deben permanecer con los nuevos creyentes para orientarlos, animarlos y enseñarles como vivir en obediencia a su Rey.
+
+La palabra griega traducida como *"id"* en la Gran Comisión es un gerundio (*"yendo"*). Algunos predicadores y algunos maestros dicen que la orden de Jesús debería traducirse como: *"Mientras estén yendo, hagan discípulos"*, implicando que la evangelización no tiene que incluir algo que esté más allá de nuestra rutina diaria. Sin embargo, no es así como habría interpretado este mandato un lector del primer siglo.
+
+La frase *"id y haced discípulos"* utiliza el gerundio de la misma manera que lo hizo el ángel cuando le comunicó a José, el esposo de María: *"Levántate; toma al niño..."* (Mateo 2:13). El ángel no le dijo: *"Mientras que estés yendo, toma al niño..."*. La intención de Herodes de eliminar al Cristo exigía urgencia. De la misma manera, la orden de Jesús es clara y urgente: *"Id, haced discípulos"*. Este mandamiento no es solo para los que están dedicados a tiempo completo al ministerio cristiano: misioneros, evangelistas y pastores, sino para todos los creyentes.
+
+Observemos que Jesús incluyó la ordenanza del bautismo como parte del discipulado, lo cual, lamentablemente, ha sido foco de controversia durante siglos. Algunos enseñan que hay que bautizar a los bebés por la misma razón que los bebés varones judíos son circuncidados, como símbolo de su participación en el pacto con Dios. Otros dicen que el bautismo es sencillamente un testimonio público y un símbolo externo de una transformación interna. Otros enseñan que el bautismo es un requisito para la salvación, o uno de los medios mediante el cual una persona puede escapar del castigo del infierno.
+
+Sin embargo, la Biblia enseña claramente que el bautismo es un acto de obediencia después que una persona ha declarado su fe en Jesucristo. Es un paso importante en la nueva vida del nuevo creyente, no un requisito para la salvación de los pecados. Los creyentes son salvos por gracia, por medio de la fe en Jesucristo, no como resultado de las buenas obras... incluyendo el bautismo. Piénselo así: La salvación es solo por fe en el solo Cristo y por la sola gracia.
+
+Notemos también el alcance de esta misión. Toda autoridad... todas las naciones... todas las cosas que os he mandado... estoy con vosotros todos los días. Se trata de una misión permanente con el propósito de extender la autoridad del Señor Jesucristo a todas las personas, de todas partes y por todo el tiempo. Su meta es nada menos que un reino universal en el que toda persona doblará su rodilla ante el Rey Jesús. Sin embargo, aunque Jesús es vehemente en cuanto a la misión, no es estricto en cuanto al método. Él ha dado poder a su pueblo para realizar la tarea, y espera que todas nuestras energías y toda nuestra creatividad sean utilizadas para apoyar esa misión. Hay, literalmente, cientos de maneras efectivas que los creyentes han inventado para hablar de Jesucristo a las personas: Cenas evangélisticas, reuniones de parejas, reuniones de solteros, estudios bíblicos en los hogares, ministerios de radio y televisión, reuniones de hombres y mujeres de negocios, reuniones de hombres, reuniones de mujeres, retiros, clubes, desayunos de oración con alcaldes, desayunos de oración con presidentes, películas cristianas, videos, publicaciones, sitios en Internet, campamentos, conferencias, seminarios, reuniones con deportistas patrocinadas por la iglesia, ministerios musicales, artes y oficios, reuniones con la comunidad, ministerios con profesionales específicos, consultas médicas gratuitas, ministerios con estudiantes de secundaria, grupos de discusión universitarios, debates patrocinados por ministerios, ministerios con los niños, ministerios para atender personas con necesidades especiales, ministerios para divorciados, programas para tratar a personas con adicciones, escuelas cristianas... podría llenar otra página si el tiempo me lo permitiera. Es muy probable que usted tenga una idea en mente, que no está ni en mi lista. ¿Quiere mi consejo? ¿Qué está esperando? ¡Salga a hacer discípulos!
+
+Las personas que no son capaces de responder la pregunta: *¿Quién es Jesucristo?*, tienen muchas necesidades, cada una de las cuales le ofrece al creyente la oportunidad de compartir las buenas nuevas. Un adolescente de una pequeña ciudad, tiene problemas muy diferentes a la de uno en una gran ciudad, o una madre soltera de una gran ciudad conocida, o el recluso de un pueblo distante. Uno ministra a una familia destrozada por el dolor de una manera muy diferente a ministrar a un empresario con mucho futuro que está comenzando un nuevo estilo de vida tras haber sido promovido a un gran cargo. Alguien que se gane la vida trabajando en la construcción responderá de manera diferente a como lo haría un artista, un deportista, un piloto, un científico o el vendedor de autos de una gran compañía.
+
+Felizmente, Dios hizo todas las variedades de personas con una amplia variedad de intereses y capacidades. Ha llamado a personas de todas las razas y de todos los colores que han sido golpeadas por la vida de todas las maneras imaginables. Pero aun las cicatrices de los abusos del pasado y las heridas pueden ser usados como el medio para traer sanidad a los demás. ¡Qué maravillosa oportunidad tenemos de hacer discípulos!
+
+Jesús ordenó a sus seguidores a ir y a no dejar de hacer discípulos, pero dejó el método a usar en nuestras manos. Permítame que le anime a ser creativo, y a seguir haciéndolo después con entusiasmo.
+
+### PODER SANTO, PERSONAS COMUNES Y CORRIENTES
+
+En la segunda reunión en el monte, esta vez cerca de Betania en Judea, una multitud de seguidores de Jesús se reunió con grandes expectativas. Esperaban oír un gran anuncio en relación con el futuro reino. Cuando éste vino adonde ellos estaban, le adoraron, y como parte de su adoración le hicieron la pregunta que todos querían que Jesús respondiera: *"Señor, ¿restituirás el reino a Israel en este tiempo?"*.
+
+Él les respondió:
+
+> *A vosotros no os toca saber ni los tiempos ni las ocasiones que el Padre dispuso por su propia autoridad. Pero recibiréis poder cuando el Espíritu Santo haya venido sobre vosotros, y me seréis testigos en Jerusalén, en toda Judea, en Samaria y hasta lo último de la tierra,*
+
+**Hechos 1:7,8**
+
+Este anuncio fue de lo más sorprendente por varias razones. En primer lugar, la idea de que los ciudadanos recibieran poder era un concepto revolucionario. En nuestros tiempos de democracia y de elecciones, nos hemos acostumbrado a la idea de que el poder político y el poder militar les pertenecen a los ciudadanos, pero en el primer siglo, el poder era solo para los reyes. En segundo lugar, a lo largo de la mayor parte de la historia humana, nadie había recibido poder. Se llegaba al poder ganándolo o, más comúnmente, tomándolo a punta de lanza o cuchillo. En tercer lugar, el anuncio señalaba una clase de futuro diferente a lo que los seguidores de Jesús habían esperado. Pero nunca habían renunciado totalmente a sus expectativas del resurgimiento hebreo en el que revivirían al reino y restaurarían la era dorada de David y Salomón.
+
+Un aspecto del anuncio de Jesús, que dejó atónita y boquiabierta a la multitud, eclipsó a todo lo demás: *"Cuando el Espíritu Santo haya descendido sobre vosotros..."*
+
+El Espíritu Santo ha sido siempre un concepto misterioso, casi *"fantasmal"* del Antiguo Testamento. Cuando el Espíritu Santo interactuaba con alguien, la persona poseía cualidades casi divinas o actuaba con una autoridad que no le era propia. Los guerreros recibían fuerzas y habilidades sobrehumanas. Los profetas hablaban y escribían lo que estaba en la mente de Dios. A veces, demostraban el poder del Señor frente a los enemigos de éste, controlando el tiempo atmosférico, curando enfermedades o haciendo descender fuego del cielo. Por eso, la actividad del Espíritu Santo se convirtió en una señal de legítima autoridad divina. Posteriormente en la historia de Israel, la presencia del Espíritu Santo señalaba quien debía ocupar el trono en el pueblo de Dios.
+
+Saul, el primer rey de Israel, parecía haber nacido para desempeñar ese papel. Era alto, bien parecido, inteligente y sensible a la dirección de Dios. Pero, al final, perdió la mayoría de sus atrayentes cualidades, de las cuales la más importante era la obediencia. Por esta razón, Dios escogió a otro que lo reemplazaría; a un pastor de la remota aldea de Belén. El profeta Samuel hizo un viaje bajo la dirección de Dios para encontrar al joven y derramar sobre su cabeza el aceite ceremonial, convirtiéndolo así en *"el ungido del Señor"*. En ese momento, *"el Espíritu del SEÑOR descendió con poder sobre David"* y *"se apartó de Saul"* (1 Sam. 16:13,14).
+
+Pero Saul se negó a dejar el trono. Perdió su estabilidad emocional, lo cual lo llevó a la locura y a dedicar gran parte de su ejército para perseguir a David y asesinarlo. Saul gobernó por más de doce años como rey ilegítimo, mientras que el *"ungido"*, el hombre sobre quien *"el Espíritu del SEÑOR descendió con poder"* tuvo que vivir en el exilio. Cada ciudadano del pueblo de Dios tuvo que aceptar, bien al rey legítimo o bien al usurpador, aunque ninguno lo hizo inocentemente porque la presencia del Espíritu Santo identificaba a cada uno de los hombres de una manera clara.
+
+La prueba del Espíritu Santo había sido evidente en la vida de Jesús. Por eso, cuando convocó a los ciudadanos de su reino y les prometió que el Espíritu Santo vendría también sobre ellos, les estaba prometiendo algo de un valor inestimable. Ese mismo poder, que identificaba a Jesús como el gobernante legítimo de todo Israel, lo tendrían ellos, ¡pero como corregentes con el Rey! Jesús les dijo a sus subditos que recibirían la misma presencia poderosa que hacía que los profetas comunicaran lo que había en la mente de Dios, que los guerreros tuvieran habilidades sin par, y que humildes pastores emplearan la autoridad delegada del Señor.
+
+El anuncio asombró a todos por una razón: El Mesías estaba delegando su divino poder a personas comunes y corrientes. Como lo expresó después el apóstol Pablo: *"Tenemos este tesoro en vasos de barro, para que la excelencia del poder sea de Dios, y no de nosotros"* (2 Cor. 4:7).
+
+Las personas que estaban delante de Jesús en el monte no eran extraños, sino compañeros íntimos, todos ellos creyentes en la identidad y en la misión del Señor. No eran más importantes ni menos importantes que las personas que vemos hoy en día haciendo compras en el mercado, llenando las gradas en un evento deportivo o yendo a trabajar en una fábrica. Eran campesinos, pescadores, comerciantes, madres, artesanos y obreros. Algunas tenían posiciones de autoridad, pero la mayoría no. Muchas de ellas, aunque eran creyentes, habían sido débiles en su fe. Mateo escribió que algunos de los que estuvieron en la primera reunión *"dudaban"*, utilizando un modismo griego que significaba, literalmente, *"de doble boca"*. Algunos de aquellos a quienes Jesús les prometió este poder habían flaqueado antes.
+
+Notemos, asimismo, que Jesús no les puso halos, ni cuellos clericales, ni coronas. Tampoco les puso uniformes, no los envió a escuelas especiales, ni les dio títulos de reverendo, padre o pastor. No señalo esto para decir que los seminarios no son esenciales; de hecho, soy el rector de uno de ellos. Ni estoy diciendo que las iglesias no debieran tener pastores, ya que sigo pastoreando una. Lo que estoy diciendo es que a cada creyente le ha sido prometido el mismo poder, y que todos han sido llamados a ser parte del plan de Dios.
+
+Seamos honestos: el 90% del ministerio es solo una presentación del servicio. Pero una vez que alguien se decide a participar de verdad, el Espíritu Santo se encargará del resto.
+
+### LA VICTORIA FINAL
+
+Jesús no limitó el alcance del plan, pero reconoció que éste no se realizaría de la noche a la mañana. Por eso dio poder a personas comunes y corrientes para que llevaran a cabo ese plan extraordinario, y les profetizó que tendrían éxito. Él les dijo: *"Me seréis testigos en Jerusalén, en toda Judea, en Samaria y hasta lo último de la tierra"* (Hech. 1:8). Observemos que el epicentro de la evangelización era Jerusalén, donde vivía la mayoría de los discípulos. Debían ser testigos de Cristo para sus familiares, amigos, vecinos y compañeros de trabajo. *"Judea"* se refería al territorio de alrededor, lo que pudieramos llamar un distrito, una provincia, o un estado. *"Samaria"* indicaba la región en que la relación sería transcultural; hablarían de Jesucristo a personas de religiones y razas diferentes. Por último, debían llevar las buenas nuevas a todas partes del mundo.
+
+El plan del Señor llamaba a la acción, y la manera como lo expresó anunciaba su éxito. Él no dijo: *"Podéis ser mis testigos"*, ni *"podríais ser mis testigos"*, ni *"deberíais ser mis testigos"*, sino que dijo: *"Seréis mis testigos"*. Lo dijo en respuesta a la pregunta acerca del reino, y de cuándo sería establecido.
+
+Como judíos que conocían bien las palabras de los profetas del Antiguo Testamento y que creían que Dios cumpliría todas sus promesas, los discípulos de Jesús tenían una curiosidad natural por saber el futuro de Israel. Tenían la promesa de que el Mesías tomaría algún día el trono de Israel (Sal. 2:6, 7), derrotaría a todos sus enemigos (Sal. 110:1, 2), establecería un gobierno justo (Isa. 9:7; 11:4, 5), conduciría a la nación a una paz y a una prosperidad sin precedentes, y aun extendería su dominio al mundo entero (Sal. 2:8).
+
+Inevitablemente, Jesús vendrá de la misma manera como los discípulos le vieron ir al cielo (Hech. 1:11), y tomará el trono de Israel para ejercer su poder. Aunque Dios cumplirá sin falta todas sus promesas a Israel, él ha determinado un período de gracia entre la primera venida del Mesías y la segunda venida, que todavía pertenece al futuro. Durante este tiempo, toda la humanidad, tanto judíos como gentiles, está invitada a acercarse al trono del Rey Jesús para ser parte de sus filas de discípulos cada vez más grandes.
+
+Los seguidores de Jesús, desde el día de su ascensión al cielo, hasta el día de hoy, han sido invitados a unirse a él en la empresa de edificación de su gran reino. Y aunque la obra es al final de cuentas de él y que él llevará fielmente a cabo lo que comenzó, a los creyentes se les ha dado una verdadera responsabilidad para el éxito de su plan. El Señor no tiene otra estrategia para la salvación de la humanidad. Solo ésa.
+
+Aunque Dios no necesita, en verdad, la ayuda de las personas para redimir al mundo del pecado y del mal, ha decidido, sin embargo, utilizar a sus seguidores para llevar a cabo el plan. Los profetas del Antiguo Testamento y el libro de Apocalipsis señalan claramente el incontenible poder de Jesucristo. Nada podrá evitar que el reino de Dios gobierne al mundo. Por tanto, la Gran Comisión es fundamentalmente una invitación a unirnos a Dios en esta gran empresa que no tiene ninguna posibilidad de fracasar. El Señor no nos necesita a nosotros, pero sí quiere que colaboremos con él.
+
+En el libro *Daily Meditations on Golden Texts of the Bible* de Henry Gariepy, leemos las siguientes palabras:
+
+> Cuando se le preguntó a David Livingston qué lo había sostenido en todos los peligros de su trabajo misionero en África, respondió citando (la Gran Comisión). Cuando murió su esposa en África, él mismo ayudó a preparar su cuerpo para la sepultura, y también a hacer el ataúd y a bajarla al sepulcro. Después abrió su Nuevo Testamento, leyó el texto (de la Gran Comisión) y dijo a sus amigos africanos: *"Estas son las palabra de un caballero de la honorabilidad más estricta y más sagrada, y él cumplirá su palabra. Sigamos, entonces, haciendo nuestro trabajo".*
+
+¿Cuál es la Jerusalén suya? Para mí, es Frisco, Texas. Allí vivo, allí está mi comunidad. La suya puede ser una gran área metropolitana, o un pueblo que no tienen ni dos mil almas... o ni siquiera doscientas. Si usted es un creyente de Jesucristo ha sido llamado a unirse a él para hacer discípulos, y deberá comenzar en el lugar donde se encuentre. Piense en ese lugar como su Jerusalén.
+
+Pero usted no está limitado a Jerusalén. También ha sido llamado a hacer discípulos en Judea y Samaria. ¿De qué manera puede ser testigo en su región? ¿Pudiera unirse a otros que han establecido un efectivo ministerio en su área? Y ¿qué medio de ministerio transcultural? En el primer siglo Samaria era el lugar que más detestaban los judíos, y lo sabia, ¿verdad?, que queda nada menos que entre Judea y Galilea. Un buen judio que viajara de una región a otra, jamás pasaba por Samaria. Ahí adía no menos de todo un día a su viaje, cruzando el río Jordan, para bordear el límite oriental de Samaria, solo para evitar ensuciarse sus sandalias con la tierra de los samaritanos.
+
+¿Quiénes que viven en el área que está a su alrededor hablan otra lengua, o tienen sus raíces en otra cultura? ¿Quiénes en su área son menospreciados, evitados o considerados indeseables? ¿Cómo pudiera usted vencer sus propios temores, su desconfianza o su malestar, para compartir las buenas nuevas de Jesucristo con esas personas? ¿Hay cerca de usted un albergue para los sin techo? ¿Alguna cárcel? ¿Una parte de la población económicamente deprimida?
+
+No olvidemos, tampoco, que el Señor tiene su mirada puesta en toda la tierra. Él nunca pone límites a la manera como las personas pueden alcanzar a otras, o hasta donde pueden ir. Él le está llevando a dejar una vida cómoda para que tenga la experiencia de hacer discípulos a escala mundial. Las agencias misioneras y otras organizaciones existen con el propósito específico de ayudar a las personas a salir de donde están, para ir a otras partes del mundo en las que viven personas que nunca han oído el nombre de Jesucristo.
+
+Usted puede participar de una de las tres maneras fundamentales. En primer lugar, puede orar por quienes se han dedicado a hacer discípulos en otros países. Hable con las organizaciones misioneras o con su iglesia local, y pídales que le den los nombres de algunos misioneros; y ore por ellos regularmente. ¡Yo puedo decir, por experiencia propia, que esas oraciones ayudan!
+
+En segundo lugar, puede dar dinero para ayudar a los gastos de un misionero que esté sirviendo en el exterior. Las organizaciones misioneras tienen para ello un proceso muy fácil y agradable, y las iglesias ayudan muchas veces a mantenerle en contacto con los misioneros que apoyan a través de la congregación.
+
+¡Pero la mejor manera, y la que produce más satisfacciones, es ir uno mismo! Las iglesias proporcionan con frecuencia oportunidades de unirse a otros para hacer trabajo misionero directamente. A veces, los viajes son de apenas una semana. Hay quienes podrían dedicar todo un verano a hacer un ministerio transcultural. O quizás usted pudiera sentir un impulso divino para convertirse en un hacedor de discípulos a tiempo completo en el extranjero. Hable con su iglesia o con una organización misionera, y comience a hacer preguntas importantes. Pero tengo que advertirle algo: Dios tiene la manera de redirigir a quienes se involucran personalmente. Por tanto... ¡manténgase atento!
+
+Pero, sea lo que sea que hagamos, no debemos tratar a la Gran Comisión como la gran sugerencia. Comencé este capítulo con una fábula, y lo terminaré con una historia, tomada de mi libro *Growing Strong in the Seasons of Life*.
+
+> En una costa muy peligrosa, famosa por sus naufragios, había un pequeño y rústico puesto de salvamento. En realidad, el puesto era apenas una cabaña con un solo sencillo bote... pero los pocos miembros dedicados de ese puesto mantenían una vigilancia constante sobre el turbulento mar. Sin pensar en su propia conveniencia, salían día y noche para buscar a quienes estaban en peligro, y también a quienes estaban perdidos. Muchas, pero muchas vidas fueron salvadas por este valiente grupo de hombres que trabajaban fielmente a toda hora como un equipo en este puesto de salvamento. Con el tiempo, el puesto se convirtió en un lugar famoso.
+> 
+> Algunos de los que habían sido salvados, y también otros que vivían en la costa, se convirtieron en miembros del pequeño puesto y estuvieron dispuestos a dar su tiempo, energía y dinero para apoyar su objetivo. Se compraron nuevos botes y se entrenaron nuevos equipos de rescate. El puesto, que una vez había sido sencillo y rústico y prácticamente insignificante, comenzó a crecer. A algunos de sus miembros no les agradaba que la cabaña fuera tan chica y que estuviera tan mal equipada. Por tanto, sintieron que debían tener un lugar más cómodo. Los rústicos muebles fueron sustituidos por muebles muy bonitos y cómodos. Los toscos equipos, hechos a mano, fueron desechados, e instalaron sistemas sofisticados y elegantes. Y la cabaña, por supuesto, tuvo que ser echada abajo para poder tener espacio para todos los equipos adicionales, los sistemas y el mobiliario. Cuando se terminó todo, el puesto de salvamento se había convertido en un popular lugar de reuniones, y su objetivo comenzó a cambiar. Ahora se usaba como una especie de club, como un atractivo lugar público de reuniones. Salvar vidas, alimentar a los hambrientos, fortalecer a los temerosos y tranquilizar a los preocupados rara vez se hacía, ahora había otras actividades que atender.
+> 
+> Cada vez era menor el número de miembros que se interesaba en enfrentarse al mar en misiones de rescate, por lo cual contrataron equipos profesionales de lanchas de salvamento para que hicieran el trabajo. Sin embargo, el propósito original del puesto no estaba olvidado del todo. Imágenes de la misión de salvar vidas seguían estando presentes en los adornos del club. De hecho, había una lancha de salvamento preservada en el *"salón de los dulces recuerdos"* que tenía una iluminación suave e indirecta, lo cual ayudaba a ocultar la capa de polvo que cubría la antaño tan utilizada embarcación.
+> 
+> Más o menos por ese tiempo, un gran barco naufragó frente a la costa, y los equipos rescataron con sus botes a muchas personas entumecidas por el frío, medio ahogadas y enfermas. Estaban sucias, y algunas terriblemente enfermas y solas. Otras eran parte de una raza "diferente" a la de la mayoría de los miembros del club. De modo que el hermoso club se llenó de pronto de mucha gente, y todo se volvió un caos. Un comité especial del club consideró que debía construirse de inmediato una casa de duchas afuera y lejos del club para que las víctimas del naufragio pudieran limpiarse antes de entrar al mismo.
+> 
+> En la siguiente reunión del club se dijeron palabras fuertes y muchos manifestaron sentimientos de rechazo, lo cual produjo una división entre los miembros. La mayoría de las personas quiso poner fin del todo a las actividades de salvamento del club, y no involucrarse con las víctimas del naufragio... (*"eso es demasiado desagradable; es un estorbo para nuestra vida social; se está abriendo la puerta a gente que no es de nuestra clase"*. Como era de esperarse, algunos insistieron en que se debían salvar vidas, diciendo que ese era el objetivo principal; la única razón de la existencia del lugar era ministrar a cualquiera que necesitara ayuda sin importar la hermosura del club, su tamaño o sus adornos. Pero la propuesta de este grupo fue derrotada, y les dijeron que si querían salvar vidas de otra clase de personas que naufragaran en esas aguas, ¡bien podían comenzar su propio puesto de salvamento en otro lugar de la costa! Y eso fue lo que hicieron.
+> 
+> Con el paso de los años, el nuevo puesto experimentó los mismos cambios de antes. Se convirtió en otro club... y después otros comenzaron otro puesto de salvamento; y la historia siguió repitiéndose... y si usted visita la costa hoy en día, verá un gran número de exclusivos e impresionantes clubs a lo largo de la costa que pertenecen y son administrados por hábiles profesionales que han perdido todo interés en el rescate y salvamento de los naufragos.
+> 
+> En esas aguas se siguen produciendo naufragios, pero ahora, la mayoría de las víctimas no son salvadas. Se ahogan todos los días, y son pocos... muy pocos, a quienes les importa.
+
+## Capítulo veinte
+### Pendientes de la venida de Jesús en los aires
+
+Para mí, el llegar al final de una biografía es una experiencia casi nunca agradable. Cuando leí la excelente biografía de Abraham Lincoln, *Team of Rivals* (Un equipo de rivales), escrita por Doris Kearns Goodwin, descubrí una vez más la razón por la que siempre he admirado a este gran estadista estadounidense. La autora combina habilmente las cartas, los diarios de Abraham Lincoln y las personas que él conoció, para contar su historia. Después de quitarle el polvo al retrato de Lincoln, su obra muestra a un gobernante inteligente y sensible, y a un líder de inigualable convicción y firmeza.
+
+Observe su miserable niñez y su inquebrantable deseo de llegar a ser algo más grande que lo que le ofrecía su entorno. Aprendí a admirar su integridad personal, su invariable determinación política y sus dotes intuitivos, así como también la manera totalmente honesta como llegó al poder. Leí con admiración la forma como logró formar un gobierno increíblemente fuerte escogiendo a hombres que habían sido sus rivales políticos, pero que sin duda eran los más calificados para hacer el trabajo. La manera de gobernar de Lincoln reflejaba el carácter puro del hombre, y gracias a que fue un hombre de carácter íntegro, la nación de los Estados Unidos de América sigue siendo hoy en día una nación unida.
+
+Cuando leía los capítulos finales de su vida, tuve un sentimiento de temor. Me encogí espantado cuando su asesino (Booth) se deslizó por detrás del presidente en el teatro y le disparó a la cabeza a quemarropa. Mientras Lincoln se encontraba en estado de coma, yo tenía la esperanza, más allá de toda razón, ¡de que sobreviviera! Cuando murió nueve horas más tarde, sentí como si hubiera perdido a un amigo querido.
+
+Halló que las biografías son curiosas al comienzo, fascinantes en el medio y, la mayoría de las veces, tristes al final. Si la biografía es completa, termina siempre de la misma manera: ¡Con la muerte del héroe! El epílogo une los cabos sueltos, y el libro va a parar a un estante para acumular polvo. Otra vida grandiosa ha terminado como todas las demás.
+
+¡Todas, excepto la de Jesús! Esta historia de la vida más grande de todas es diferente. No solo porque el personaje sigue vivo, sino también porque un importante capítulo de su vida no ha sido contado todavía. El final está escrito en la profecía, pero todavía no en la historia.
+
+Poco después de la entrada de Jesús a Jerusalén para presentarse oficialmente como el Mesías y para reclamar autoridad sobre el templo, sufrió el rechazo de los líderes religiosos. Como hemos visto, su posterior actitud frente a la corrupción de Anás y de los principales sacerdotes se convirtió en el momento de la verdad. Quienes gobernaban la casa de Dios optaron por el poder y la riqueza temporales, antes que por la vida abundante que Cristo había venido a darles. Al hacerlo, prefirieron la condenación a la salvación. Jesús se sentó después sobre la ladera occidental del monte de los Olivos y lloró sobre la ciudad.
+
+> *"¡Jerusalén, Jerusalén, que matas a los profetas y apedreas a los que te son enviados! ¡Cuántas veces quise juntar a tus hijos, así como la gallina junta sus pollitos debajo de sus alas, y no quisiste! He aquí, vuestra casa os es dejada desierta, porque os digo que desde ahora no me veréis más hasta que digáis: ¡Bendito el que viene en el nombre del Señor!*"
+
+**Mateo 23:37-39**
+
+Su llanto movió a sus discípulos a preguntarle cuál sería el destino de la ciudad en los últimos días. Jesús utilizó la oportunidad para decirles lo que sucedería en los años y en los siglos futuroros. *"¿No veis todo esto? De cierto os digo que aquí no quedará piedra sobre piedra que no sea derribada"*
+
+Sus discípulos... le dijeron:
+
+> *—Dinos, ¿cuándo sucederán estas cosas? ¿Y qué señal habrá de tu venida y del fin del mundo?*
+
+Respondió Jesús y les dijo:
+
+> *—Mirad que nadie os engañe; porque muchos vendrán en mi nombre diciendo: "Yo soy el Cristo", y engañarán a muchos. Oiréis de guerras y de rumores de guerras. Mirad que no os turbéis, porque es necesario que esto acontezca; pero todavía no es el fin.*
+
+**Mateo 24:3-6**
+
+> *Entonces se manifestará la señal del Hijo del Hombre en el cielo, y en ese tiempo harán duelo todas las tribus de la tierra, y verán al Hijo del Hombre viniendo sobre las nubes del cielo con poder y gran gloria. El enviará a sus ángeles con un gran sonar de trompeta, y ellos reunirán a los escogidos de él de los cuatro vientos, desde un extremo del cielo hasta el otro.*
+
+> *Pero acerca de aquel día y hora, nadie sabe; ni siquiera los ángeles de los cielos, ni aun el Hijo, sino solo el Padre. Velad, pues, porque no sabéis en qué día viene vuestro Señor.*
+
+**Mateo 24:30,31;36,42**
+
+Nadie imaginaba lo pronto que habría de cumplirse su profecía. En el año 39 d. de J.C., el demente emperador romano Caligula se autoproclamó dios, y ordenó que su imagen fuera puesta en todas las ciudades y en todos los templos del imperio. Luego, el procurador de Judea, Gesio Floro, se apoderó de una gran suma de dinero del tesoro del templo de Jerusalén. Estas dos acciones pusieron completamente de acuerdo a fariseos y saduceos contra Roma, lo cual despertó al gigante dormido que eran los zelotes y los sicarios. En el año 66 d. de J.C., Israel se rebeló y logró varias victorias militares; parecía que estaba a punto de lograr su independencia.
+
+Luego, cuando Vespasiano se convirtió en emperador, todo cambió. Éste envió decenas de miles de soldados que atravesaron Galilea y pusieron sitio a Jerusalén. En el año 70, Tito, hijo del emperador, derribó el muro de la ciudad. La furia con que los soldados devastaron Jerusalén no tenía precedentes. El historiador judio Josefo, en su libro *The Works of Josephus Complete and Unabridged*, describe lo que pasó.
+
+> *Tan pronto como el ejército no tuvo más gente que matar ni nada más que saquear, porque ya no había nada más contra que descargar su furia (no habrían perdonado nada de haber quedado algo), César dio después la orden de que demolieran toda la ciudad y el templo, pero que debían dejar en pie las torres famosas, es decir, Faselo, Hipico y Maniamna, y lo que quedaba del muro que rodeaba la parte occidental de la ciudad. Este muro no fue destruido, para que sirviera de campamento a las guarniciones; las torres no fueron destruidas para que mostraran a la posteridad que clase de ciudad había sido Jerusalén, lo bien fortificada que estaba, y que los romanos la habían sometido. Pero en cuanto al resto del muro, este fue destruido desde sus fundamentos, de tal manera que no quedó nada que hiciera creer que alguna vez la ciudad había sido habitada.*
+
+En este tiempo, la persecución por parte de los líderes religiosos de Jerusalén había hecho huir a muchos de los seguidores de Jesús a Antioquía. Los discípulos que quedaban, aquellos que no habían sufrido el martirio, indudablemente tomaron nota de lo que estaba sucediendo. Se había cumplido la primera de las muchas profecías, y otras se cumplirían después. Habría guerras y rumores de guerra... tribulación... falsos Cristos... y luego, en un día futuro, desconocido para todos, menos para el Padre, regresaría Jesús, primero para reunir a su pueblo, y luego para gobernar sobre toda la tierra como Rey. ¿Él les había prometido esto en la víspera de su muerte?
+
+> *No se turbe vuestro corazón. Creed en Dios; creed también en mí. En la casa de mi Padre muchas moradas hay. De otra manera, os lo hubiera dicho. Voy, pues, a preparar lugar para vosotros. Y si voy y os preparo lugar, vendré otra vez y os tomaré conmigo; para que donde yo esté, vosotros también estéis.*
+
+**Juan 14:1-3**
+
+Esta sencilla promesa de tres palabras: *"vendré otra vez"* hace la biografía de Jesús diferente a la de cualquier otra figura histórica. Él no dijo cuándo volvería, aunque muchos han tratado de pronosticar la fecha. Pero la promesa sigue en pie. Él puede venir en cualquier momento, y debemos estar preparados para cuando lo haga.
+
+Esta perspectiva, naturalmente, estimula la imaginación, y muchos de los que han intentado calcular la fecha, han utilizado las enigmáticas imágenes del libro de Apocalipsis para acomodarlas a sus propósitos. Durante los turbulentos años de la década de los 70, muchos predicadores se pararon en los púlpitos con los libros proféticos en una mano y los periódicos en la otra, llevando así a una generación de creyentes al delirio. Debemos tomar seriamente el mandamiento de *"velad"*, pero cambién debemos mantenerlo en la perspectiva correcta. Jesús quiere que estemos preparados, no que estemos nerviosos.
+
+### UNA MIRADA AL FIN DEL MUNDO
+
+La primera generación de cristianos vivió con la fervorosa expectativa de que Jesús volvería y establecería su reino en sus días. No se les había prometido una fecha, pero sí se les dijo que estuvieran preparados. Jesús podría regresar en cualquier momento, y cuando lo hiciera sería de manera repentina. Pero pasaron los años, y los falsos maestros comenzaron a explotar sus dudas y preguntas para debilitar su confianza.
+
+*¿Y si muero antes de que él vuelva? ¿No seré parte del reino?*
+*¿Estoy sufriendo! ¿Cuándo voy a disfrutar de la promesa de abundancia que me ha prometido en el reino?*
+*El reino prometió justicia. ¿Mis verdugos la pagarán si mueren antes de que Jesús regrese?*
+*¿Y qué de mis seres queridos que han muerto? ¿Volveré a verlos otra vez?*
+
+Para responder sus preguntas, el apóstol Pablo explicó lo que él llamó un *musterion*, un misterio, dando información que Dios no había revelado antes. Al hacerlo, habló de cuatro asuntos importantes: Muerte, destino eterno, resurrección y retorno de Cristo.
+
+**Muerte.** En su carta a los cristianos que vivían en Corinto Pablo les habló de las implicaciones eternas de la resurrección. Eugene Peterson, en *The Message* parafrasea bien su enseñanza.
+
+> *Si lo único que tenemos de Cristo es un poco de inspiración para unos breves años, somos muy dignos de lástima. Pues la verdad es que Cristo ha resucitado, el primero de una larga multitud de salvados que abandonarán los cementerios.*
+> 
+> *Aquí tenemos una maravillosa correspondencia: La muerte vino primero por un hombre, y la resurrección de la muerte por un hombre. Todos mueren en Adán, y todos viven en Cristo. Pero tenemos que esperar nuestro turno: Cristo es primero, luego los que le acompañarán en su venida, que será la gran consumación cuando, después de destruir la oposición, entregue su reino a Dios el Padre. El Señor no cesará hasta que el último enemigo sea vencido: ¡ese último enemigo es la muerte!*
+
+**1 Corintios 15:19-26**
+
+De acuerdo con la Biblia, la muerte no es el final de la vida, sino la puerta terrenal de entrada a una clase de vida diferente. La muerte es simplemente la separación de lo invisible de lo visible; del aspecto inmaterialde una persona delo material. En el momento de la muerte, el cuerpo físico deja de funcionar e inmediatamente comienza a descomponerse; el mundo material reclama nuestras moléculas. Pero las cualidades internas, invisibles, que definen nuestra personalidad, nuestro espíritu y nuestra alma, siguen existiendo.
+
+**Destino eterno.** En cuanto a los que hayan muerto antes del regreso de Jesús, sus cuerpos físicos están destinados a la tumba. Pero la muerte y el destino eterno son dos cosas distintas. El cuerpo muere, pero el alma sigue viva. Después que alguien ha atravesado la puerta de la muerte, le espera uno de dos destinos.
+
+Los que mueran sin haber puesto su fe en Cristo, ya sea porque se negaron a aceptar la oferta de Dios de restaurar su relación con él, o porque trataron de salvarse por sus propios medios, no dejarán de existir. La muerte para ellos será también una puerta a otra clase de existencia, pero su destino será muy diferente al de quienes mueren *“en Cristo"*. No irán a disfrutar de la presencia de Dios por toda la eternidad, sino que irán literalmente a un lugar donde estarán separados de él para siempre.
+
+Jesús se refirió a este destino como un *"fuego que nunca se apaga"* y *"las tinieblas de afuera"*, un lugar donde *"habrá llanto y crujir de dientes"* y *"castigo eterno"*. Así como el cielo es inigualablemente bueno, el infierno es indeciblemente horroroso, más allá de nuestra comprensión. Y este no será temporal. No hay un *"purgatorio"* en el que la persona sufrirá durante cierto tiempo para purificarse de los *"pecados pequeños"* antes de entrar al cielo, y ninguna oración de cualquier otra persona podrá sacarlo de allí. La elección de uno de estos destinos tendrá que hacerse antes de pasar por la puerta de la muerte. Después de cruzar ese umbral, la eternidad quedará sellada para siempre.
+
+Por fortuna, nadie tiene que ir a ese lugar. A toda persona se la da la oportunidad de ser salva. Jesucristo murió por los pecados de toda la humanidad, y él nos ofrece ahora otro destino como un regalo. Estar *"en Cristo"* es poner nuestra fe en él para ser salvos del pecado. Estar *"en Cristo"* es confiar en su piedad, no en la nuestra; es creer que su muerte expiatoria en la cruz pagó en su totalidad la deuda de muerte que nosotros debíamos por nuestro pecado; es creer que su resurrección nos da la vida eterna, en vez de confiar en nuestra propia capacidad de agradar a Dios. Estar *"en Cristo"* es reclamar, por fe, el don gratuito de la salvación. Estar *"en Cristo"* es disfrutar de una relación totalmente restaurada con nuestro Padre celestial, en virtud de la justicia de su Hijo.
+
+Pablo lo expresó así en su carta a los corintios: *"Así vivimos, confiando siempre y comprendiendo que durante nuestra estancia en el cuerpo peregrinamos ausentes del Señor. Porque andamos por fe, no por vista. Pues confiamos y consideramos mejor estar ausentes del cuerpo, y estar presentes delante del Señor"* (2 Cor. 5:6-8). En otras palabras, la vida *"en Cristo"* es una oferta en la que no hay la posibilidad de perder. ¡Estar vivo en la tierra es tener la confianza de que habrá un futuro grandioso. jEstar separados de nuestros cuerpos es estar disfrutando de la vida eterna con nuestro Hacedor!
+
+Pablo dijo que los que están *"en Cristo"* serán vivificados, no simplemente restaurados a la misma clase de vida, como sucedió con Lazaro, quien fue resucitado y murió después por alguna enfermedad o algún daño, sino para vivir con una vida abundante por toda la eternidad, para nunca más sufrir ni volver a morir. La resurrección prometida por Jesús y de la cual enseñó Pablo, es un concepto muy diferente de lo que alguien hubiera entendido antes.
+
+> *Los cristianos de Corinto, algunos de los cuales eran escépticos, estaban preguntándose: “¿Cómo resucitan los muertos? ¿Con qué clase de cuerpo vienen?". Pablo explicó la resurrección utilizando una maravilla de la naturaleza a la que nosotros consideramos como cosa natural. Señaló que la semilla tiene que morir primero y ser enterrada antes de que pueda realizar su destino. La semilla de trigo crece para convertirse en tallo. Una bellota se convierte en un roble gigante. Cuando una semilla muere, no se convierte en algo diferente, sino en una expresión mucho más grande de lo que era antes.*
+
+> *Y lo que siembras, no es el cuerpo que ha de salir, sino el mero gramo, ya sea de trigo o de otra cosa. Pero Dios le da un cuerpo como quiere, a cada semilla su propio cuerpo. No toda carne es la misma carne; sino que una es la carne de los hombres, otra la carne de los animales, otra la de las aves y otra la de los peces. También hay cuerpos celestiales y cuerpos terrenales. Pero de una clase es la gloria de los celestiales; y de otra, la de los terrenales.*
+
+**1 Corintios 15:37-40**
+
+**Resurrección.** En cuanto a ésta, los creyentes se preguntarían, sin duda: ¿Bien, qué pasará si Jesús viene antes de que yo muera? ¿Cómo experimentaré esta nueva resurrección si todavía no he muerto? Pablo explicó entonces otro *musterion*.
+
+> *Y esto digo, hermanos, que la carne y la sangre no pueden heredar el reino de Dios, ni la corrupción heredar la incorrupción.*
+
+He aquí, os digo un misterio: *No todos dormiremos, pero todos seremos transformados en un instante, en un abrir y cerrar de ojos, a la trompeta final. Porque sonará la trompeta, y los muertos serán resucitados sin corrupción; y nosotros seremos transformados. Porque es necesario que esto corruptible se vista de incorrupción, y que esto mortal sea vestido de inmortalidad. Y cuando esto corruptible se vista de incorrupción y esto mortal se vista de inmortalidad, entonces se cumplirá la palabra que está escrita:*
+
+> *¡Sorbida es la muerte en victoria!*
+> *¿Dónde está, oh muerte, tu victoria?*
+> *¿Dónde está, oh muerte, tu aguijón?*
+
+**1 Corintios 15:50-55**
+
+Este viejo saco de huesos, este cuerpo debilitado, viejo y enfermo, no está preparado para durar eternamente. Somos afortunados por tenerlo setenta años; algunos lo tienen por ochenta o noventa. ¡Leí que una señora llamada Mary Thompson murió a la edad de ciento veinte años! Según sus familiares, vivió tanto tiempo porque comía bien, nunca fumó, siguió trabajando en el patio de su casa hasta los ciento cinco, ¡y siempre llevaba una pistola calibre 22 consigo! Aunque sigamos todas las recetas efectivas para prolongar la vida, nuestro cuerpo se desgastará al final. Tendrá que ser cambiado para poder vivir para siempre. Hablando en términos relativos, los que ya han muerto, aunque sus cuerpos se pudrieron, no están en peores condiciones que quienes están vivos todavía. Ningún cuerpo está hecho para la eternidad. El cuerpo mortal tiene que ser hecho inmortal. Cuando Jesús vuelva a buscar a su pueblo para que esté con él, deberá producirse, y de hecho se producirá, un cambio físico radical.
+
+**El retorno de Cristo.** Pablo reveló que cuando suene la trompeta y aparezca Jesús en el cielo, los que están *"en Cristo"* y que no hayan muerto todavía, serán *"transformados en un instante, en un abrir y cerrar de ojos"* (1 Cor. 15:52). La palabra griega traducida como *"instante"* es **atmos**, que es la raíz de nuestra palabra **átomo**. Será un instante indivisible en el tiempo, no el parpadeo de un ojo, sino el tiempo que se necesita para que una luz pase por el ojo. Quienes estén vivos cuando Cristo regrese, recibirán en un instante un cuerpo hecho para la eternidad, así como recibieron nuevos cuerpos los que fueron resucitados de sus tumbas.
+
+Esta nueva existencia física es lo que los teólogos llaman un *"cuerpo glorificado"*, porque será inmune a los efectos tóxicos y destructivos de un mundo que ha sido envenenado con el pecado. Ese nuevo cuerpo *"imperecedero"* jamás se enfermará, jamás sufrirá algún daño, jamás experimentará tristezas, y jamás envejecerá o morirá. La muerte habrá sido *"sorbida en victoria"* (1 Cor. 15:54).
+
+### EL INICIO DE UN NUEVO COMIENZO
+
+Jesús previno a sus discípulos acerca del futuro, de los falsos profetas, de los falsos mesías, de los rumores y de las apariciones. Pero, a pesar de la palabra del Señor de que nadie sabe cuándo regresará él, la gente ha trabajado incansablemente para calcular el día en que ocurrirá, y han publicado sus predicciones con una seguridad increíble. En 1833, William Miller comenzó a proclamar desde el púlpito, por medio de panfletos y en libros, que el Señor regresaría en 1843 y... no regresó.
+
+Entonces, algunos de los seguidores de Miller dijeron que la fecha correcta era 1844... el 22 de octubre, para ser exacto. Cuando esa fecha pasó sin que hubiera ninguna señal del regreso de Cristo, hubo otros que ajustaron la fecha a abril de 1878. ¡Qué absurdo!
+
+Jesús dijo que los falsos maestros anunciarían: *"Mirad, está en el desierto"* o *"Mirad, ha venido en secreto"*. Pero el aseguró esto a sus seguidores: *"Porque así como el relámpago sale del oriente y se muestra hasta el occidente, así será la venida del Hijo del Hombre"* (Mat. 24:27). Su regreso será repentino y plenamente visible para todo el mundo.
+
+Sin embargo, algunos de los primeros cristianos tenían el temor de haber sido dejados atrás, creyendo que Jesús ya había regresado. También se preguntaban si quienes habían muerto no experimentarían la bienaventuranza del nuevo reino. Para tranquilizarlos, Pablo les dio otra enseñanza.
+
+> *Tampoco queremos, hermanos, que ignoréis acerca de los que duermen, para que no os entristezcáis como los demás que no tienen esperanza. Porque si creemos que Jesús murió y resucitó, de la misma manera Dios traerá por medio de Jesús, y con él, a los que han dormido.*
+
+**1 Tesalonicenses 4:13,14**
+
+Piense usted en lo triste que es la muerte cuando no se cree en esta futura resurrección. ¡Qué trágica resulta cuando no hay ninguna esperanza más allá de la tumba! Pero la muerte tiene un significado completamente diferente para el creyente, por su certidumbre de la vida eterna. Pablo utilizó el término *"dormido"*, no como un simple eufemismo, sino para comunicar una verdad importante. Los cristianos se entristecen por la pérdida de un ser amado, porque es dolorosa. Pero se entristecen con la certeza de que el creyente que partió está vivo, y de que volverán a reunirse nuevamente. Aunque la muerte los ha separado, será solo por un tiempo.
+
+Después de aclarar el asunto de la resurrección, Pablo habló del regreso de Jesús, y de lo que pasaría con la muerte cuando esto suceda.
+
+> *Pues os decimos esto por palabra del Señor: Nosotros que vivimos, que habremos quedado hasta la venida del Señor, de ninguna manera precederemos a los que ya durmieron. Porque el Señor mismo descenderá del cielo con aclamación, con voz de arcángel y con trompeta de Dios; y los muertos en Cristo resucitarán primero. Luego nosotros, los que vivimos y habremos quedado, seremos arrebatados juntamente con ellos en las nubes, para el encuentro con el Señor en el aire; y así estaremos siempre con el Señor.*
+
+**1 Tesalonicenses 4:15-17**
+
+Cuando Jesús se reunió con sus seguidores en el monte de Galilea y les dio la comisión de ser sus discípulos en todo el mundo, ascendió al cielo y desapareció en las nubes. Un ángel dijo, entonces: *"¿Por qué os quedáis de pie mirando al cielo? Este Jesús, quien fue tomado de vosotros arriba al cielo, vendrá de la misma manera como le habéis visto ir al cielo"* (Hech. 1:11).
+
+Jesús no reencarnará. No volverá como otra persona. No regresará solo como una presencia espiritual. No llegará en secreto para comenzar a acabar sutil y clandestinamente con los gobiernos y las religiones del mundo. Jesús volverá, de manera física y literal, en las nubes, y este acontecimiento será claramente visible para todos. Habrá un grito, un ángel clamara, sonará una trompeta, resucitarán los muertos y los creyentes serán transformados. Nadie dejará de ver la venida de Cristo cuando esto se produzca.
+
+Después que los muertos hayan resucitado y que los creyentes hayan sido transformados, todos los seguidores de Jesús se encontrarán con él en el aire para estar para siempre con él y para nunca más volver a separarse de Dios. Esto debió ser un gran consuelo para los cristianos después de recibir la carta de Pablo. Con Nerón gobernando al mundo como emperador, necesitarían darse confianza unos a otros a menudo.
+
+### EL REY JESÚS
+
+En el principio creó Dios los cielos y la tierra (Gen. 1:1), llenó al universo con su verdad, le dio orden y a todo lo creado lo llamó *"bueno"*. Luego el primer hombre y la primera mujer desobedecieron este sencillo mandamiento de Dios:
+
+> *Puedes comer de todos los árboles del jardín; pero del árbol del conocimiento del bien y del mal no comerás, porque el día que comas de él, ciertamente morirás*
+
+**Génesis 2:16,17**
+
+La desobediencia voluntaria de Adán y Eva cambió todo porque en ese momento el pecado comenzó a invadir con su corrupción al mundo y a transformarlo de *"bueno"* que Dios había creado, para pervertirlo. Las cosechas que produce la tierra ahora son obstaculizadas por las malas hierbas, las espinas y los cardos. El trabajo se convirtió en una pesada carga, llena de tensiones y luchas. El gozo del nacimiento de un niño es a expensas de mucho dolor y angustia. Incluso nuestra naturaleza como personas, creadas a la misma imagen de Dios, ha sido deformada por el pecado, de modo que aun en todo lo bueno que hacemos hay una dosis de egoísmo. El mal corrompe ahora todo lo bueno, para insultar al Creador, y ha producido la mayor afrenta a Dios: La muerte y la ruina de todo lo que él creó bueno.
+
+Este es el mundo que describió en el capítulo tres (Dios en pañales). Es el mundo en el que irrumpió Jesús con el propósito de transformarlo al final. El mundo sigue funcionando hoy en día de acuerdo con las consecuencias de la caída. Todavía existe el mal. Todavía hay relaciones fracturadas. Todavía hay guerras. La enfermedad nos sigue afligiendo. Nuestros seres amados mueren. Continúa el sufrimiento humano. Pero cuando Jesús regrese, todo esto cambiará. Cuando él vuelva, lo hará con poder y para hacer juicio. El Mesías que los líderes religiosos querían, el rey guerrero que toma el trono de Israel, que derrota a sus enemigos y que establece un reino mundial, logrará todo lo que anunciaron los profetas, pero a una escala total, muchísimo más grande que lo que cualquiera pudiera haber imaginado.
+
+En el capítulo final de la historia de la tierra, aun la creación será transformada. Todo mal será consumido por el fuego de la gloria de Dios, dejando solo las cosas que él hizo *"imperecederas"*.
+
+### FE EN LO IMPOSIBLE
+
+Reconozco sin reservas que este último capítulo tomó un giro surrealista. Estoy consciente de lo extraño que debe haberle parecido esto a alguien que no sepa mucho de Jesús o de la Biblia. Las biografías aun de las vidas más extraordinarias no terminan con el personaje levantándose de los muertos y luego ascendiendo a las nubes y prometiendo regresar algún día. Pero, como dije al principio, no se trata de la simple crónica de una gran figura histórica, porque Jesús no fue un simple hombre. Ni tampoco es su historia el relato de una vida. Su nacimiento, su obra, su muerte y su resurrección engloban a toda la historia de la humanidad, al menos como Dios la desea. Sin Cristo, el final de nuestra historia es un capítulo sobre nuestra muerte; es un epílogo que ata los cabos sueltos después de que hemos descendido a la tierra para volver al polvo. Pero *"en Cristo"*, nuestra historia termina como la suya, con el triunfo final, increíble y contrario a la naturaleza, sobre la muerte. Es un final que nos introduce a un comienzo inimaginable en una esfera de la existencia completamente nueva.
+
+También reconozco que lo que Dios nos pide es humanamente imposible. Estas verdades están más allá del ámbito de la ciencia, la cual solo puede observar y cuantificar el aspecto material del universo. Pero permítame señalar que, aunque las verdades sobrenaturales y espirituales desafían nuestra experiencia, no desafían la lógica. La fe no exige que cerremos nuestro cerebro y que demos saltos a ciegas. Tenemos evidencias de que fuera de esta esfera de lo material existe lo imposible. Alguien sobrenatural se dignó hablarnos de una esfera mucho más grande, e hizo lo imposible por autenticar su mensaje.
+
+Jesús no nos pide que creamos a ciegas; lo que nos invita es a que creamos en él. El Dios inefable y trascendente se convirtió en un ser humano material, de carne y hueso, para darnos todas las pruebas que necesitamos para creer. Para reclamar esa abundancia, lo único que tenemos que hacer es creer en sus palabras y confiar en la autenticidad de lo que él nos da.
+
+Permítame hacer esto mucho más personal.
+
+Usted es un pecador. Sé que es así, porque la Biblia dice que todo hombre, que toda mujer y que todo niño que ha venido a este mundo ha hecho lo malo. Más de una vez... en realidad, muchas veces. Además, la Biblia dice que el castigo por el pecado es la muerte eterna, el tormento eterno en un lugar que Jesús describió como indeciblemente espantoso. Pero el regalo de Dios, por medio de su Hijo, es la vida eterna. Esto se llama **gracia**, favor inmerecido. Es una misericordia que usted no ha ganado, que no mereció, que no tenía ningún derecho de exigir, que solo pudo recibir sin ofrecer nada a cambio. La gracia es gratuita, completamente gratuita.
+
+Dios se hizo hombre en la persona de Jesucristo. Como hombre, él sufrió la pena por el pecado en lugar de usted. Llevó todo el castigo que usted merecía, de modo que usted no tiene que pagar nada, no tiene que hacer nada, ni siquiera alguito, por sencillo que sea. En este supremo acto de gracia, el juez se desnudó voluntariamente de su toga y tomó el lugar del condenado. Él no le rechazará. No le quitará el regalo que Dios dio a Adán y Eva; no le quitará el honor de tomar sus propias decisiones, ni el privilegio de vivir con las consecuencias. Sin embargo, Dios no pudo haber hecho más fácil su regalo de la salvación. Lo único que usted tiene que hacer es recibirlo para tener la vida eterna.
+
+¿Aceptará usted este regalo? Si es así, tome unos minutos para hacer esta sencilla oración:
+
+> *Querido Dios: Sé que mi pecado ha puesto una barrera entre tú y yo. Gracias por enviar a tu Hijo, Jesús, a morir en mi lugar. Pongo mi fe solo en Jesús para el perdón de mis pecados, y acepto su regalo de la vida eterna. Vengo a Cristo solamente, y solamente por fe. Le pido a Jesús que sea mi Salvador personal. Y confío plenamente en él para que se lleve mis pecados.*
+> 
+> *Gracias,*
+> 
+> *En el nombre de Jesús, amén*
+
+Si usted pudo decirle esto a Dios, y lo dijo con toda sinceridad, ha recibido el regalo de valor inestimable. Ha recibido la vida eterna más allá de la muerte. Además, ahora tiene el derecho de reclamar una vida abundante desde este mismo momento. Por haber creído en Jesucristo, la vida de él le pertenece a usted, y su vida le pertenece a él. Ha comenzado a disfrutar de la vida más grande de todas.
