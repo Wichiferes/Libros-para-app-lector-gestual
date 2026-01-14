@@ -1744,6 +1744,7 @@ Desafortunadamente, una puerta abierta puede llegar a ser también una puerta ba
 Estos son los hombres y estas son las mujeres que me mantienen frente al público en el púlpito, y firme en mi tarea de escribir libros. Aunque han sido absueltos de la prisión del pecado, siguen estando rotundamente acurrucados en sus calabozos con sus dudas, sus temores, sus resentimientos y sus angustias como sus compañeros. Dios ha puesto en mí el deseo apasionado de verles libres. Pero, lo único que puedo hacer es anunciarles las buenas nuevas. ¿Es usted parte de ese grupo? O, ¿se ha dado cuenta de que necesita un Salvador y por eso le ha confiado a Él su alma eterna? ¡Le felicito! El maligno, la oscuridad y la muerte podrán ufánarse y darse aires, y las punzadas de la vida causarle un dolor agudo, pero no se preocupe: las fuerzas del mal están dando su último respiro pues... **¡Él ha resucitado!**
 
 <footer>273</footer>
+
 ## Capítulo diecisiete
 ### El encuentro con Jesús en el camino de la vida
 
