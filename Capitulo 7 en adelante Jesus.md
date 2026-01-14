@@ -1744,3 +1744,202 @@ Desafortunadamente, una puerta abierta puede llegar a ser también una puerta ba
 Estos son los hombres y estas son las mujeres que me mantienen frente al público en el púlpito, y firme en mi tarea de escribir libros. Aunque han sido absueltos de la prisión del pecado, siguen estando rotundamente acurrucados en sus calabozos con sus dudas, sus temores, sus resentimientos y sus angustias como sus compañeros. Dios ha puesto en mí el deseo apasionado de verles libres. Pero, lo único que puedo hacer es anunciarles las buenas nuevas. ¿Es usted parte de ese grupo? O, ¿se ha dado cuenta de que necesita un Salvador y por eso le ha confiado a Él su alma eterna? ¡Le felicito! El maligno, la oscuridad y la muerte podrán ufánarse y darse aires, y las punzadas de la vida causarle un dolor agudo, pero no se preocupe: las fuerzas del mal están dando su último respiro pues... **¡Él ha resucitado!**
 
 <footer>273</footer>
+## Capítulo diecisiete
+### El encuentro con Jesús en el camino de la vida
+
+Unos pocos días antes de que fuera apresado de noche en el Getsemaní, Jesús entró a Jerusalén, en medio de los gritos de alborozo de miles de personas, montado sobre un pollino, símbolo reconocido de paz y de evidente identificación con el Mesías. Los gozosos súbditos del Rey cubrían su paso con sus mantos, mientras que otros, que habían cortado ramas de palmas, las colocaban sobre el camino empedrado y gritaban: *"¡Sálvanos! ¡Sálvanos!"*.
+
+Él era su Mesías, quien les había prometido una vida abundante. Sus seguidores esperaban sin reservas que él se convirtiera en su rey, y que Israel fuera otra vez libre y próspero. Pero menos de una semana después, cuando el sol se ocultaba en el horizonte y terminaba una semana inolvidable, el Hijo de Dios colgaba frío y sin vida en una cruz romana fuera de los muros de la ciudad.
+
+Sus más fieles seguidores estaban perplejos y desmoralizados al caer el sol y comenzar el sábado. A la luz de las profecías, que Jesús había cumplido, a la luz de las promesas que había hecho y dada la absoluta confianza que ellos habían puesto en él, nada parecía tener sentido. El pueblo quería claramente un rey justo, pero él estaba muerto, los jefes de los sacerdotes estaban reabasteciendo el bazar de Anás y los líderes políticos de Israel estaban buscando las maneras de sacarle provecho a la nueva popularidad de Pilato. Jesús no solo había sido incapaz de mejorar a Israel, sino que además el futuro de la nación parecía aún más sombrío que antes. Todo era desesperación y desánimo.
+
+Es posible que usted pueda identificarse con el dolor de los seguidores de Jesús. Quizá haya experimentado la muerte de un sueño, o que se le haya derrumbado debajo de sus pies el puente que le permitiría alcanzar un futuro magnífico. Tal vez esté pasando por esa difícil y frustrante situación ahora mismo. Si es así, tiene entonces la oportunidad de experimentar una abundancia como nunca antes en su vida.
+
+*¿Le sorprende esto?* Después de todo, ¿no se supone que el conocimiento espiritual sea algo cautivante? ¿No es la sabiduría divina el resultado de un arrobador encuentro, en el cual el Espíritu de Dios toca místicamente nuestro espíritu? Muchos predicadores de radio y televisión hacen que la vida espiritual parezca tan maravillosa, que cada día experimentaremos milagros que se llevarán todos nuestros problemas. Hay quienes hablan de una *"vida victoriosa"* y de *"la buena vida"*, en la cual se harán realidad todos nuestros sueños ¡con solo decidir vivir por fe y reclamar lo mejor que Dios ofrece!
+
+Esa no es la vida abundante; no es más que un énfasis espiritualizado del *"poder del pensamiento positivo"*. Es lo mismo que usted escuchará de cualquier conferencista motivacional, con el añadido de unos pocos versículos bíblicos (lanzados por lo general fuera de contexto) para dar un halo de santidad a lo que enseñan.
+
+Gracias a las películas que son un éxito de taquilla, a los entretenimientos emocionantes y a las campañas de publicidad, hemos llegado a pensar que si la vida no es *"sensacional"* algo debe estar mal. Debemos ser delgados y hermosos, seguir una carrera que siempre nos esté desafiando y que nos produzca mucho dinero, hacernos ricos y famosos y disfrutar de una vida dinámica y placentera. Pero si uno se descuida, puede aplicar esas expectativas a la vida espiritual y no ver la mano de Dios en los hechos comunes y corrientes de la vida. Y más trágico aún, pudiéramos no reconocer su tierna dirección en medio de las pruebas más dolorosas de nuestra existencia.
+
+Hace varios años, fui invitado a hablar en una pequeña universidad cristiana. Su nuevo director estaba luchando ánimamente para vencer las dificultades más recientes de la institución, las cuales eran serias, y yo quería ayudar lo más que pudiera. Me saludó con entusiasmo mientras me dirigía a la terminal del aeropuerto, y cuando le pregunté: *"¿Cómo estás hoy?"*, me respondió con un sonoro *"¡fantástico!"* y una inmensa sonrisa. Le extendí la mano, y me la sacudió con tanta fuerza que me hizo doler el hombro.
+
+*—Qué bien, estupendo!* —le dije. Y como va la uni...
+
+No me dejó terminar la frase:
+
+*—Magnífico, magnífico!*
+
+Entonces me dije a mí mismo: *Nada está tan magnífico nunca*. Pero tengo que reconocer que su entusiasmo era contagioso. Él era exactamente lo que los motivadores y los expertos en liderazgo le dicen a uno que debe ser, sobre todo en lo referente a la actitud que debemos tener. Aunque yo creo sin reservas que hay que enfrentar todos los problemas con una excelente actitud, no quiero decir con esto que debemos abandonar la autenticidad y vivir en la tierra de la fantasía.
+
+Un año después, volví para hablar de nuevo y, al igual que el año anterior, todo estaba *"¡fantástico!"*, a pesar de que el número de estudiantes se había reducido bastante y de que se sentía un ambiente de preocupación en el airre.
+
+En cierto momento entre mi segunda y tercera visita, el mundo se le vino abajo. Su esposa lo había abandonado, sus hijos estaban a la deriva, la universidad tenía serios problemas económicos y el número de matriculados era el más bajo de su historia. La institución estaba a punto de cerrar sus puertas. Cuando llegué de nuevo a la ya familiar terminal, no lo vi como de costumbre en el mismo sitio, sino que estaba sentado en un banco con la cabeza baja, claramente distraído, hasta que llegué donde estaba y me paré frente a él.
+
+Entonces levantó la mirada sin decir una sola palabra. Lo tomé por los hombros, hice que se levantara y lo abracé.
+
+*—¿Cómo estás?* —le dije.
+
+Me abrazó en silencio, mientras gruesas lágrimas caían de sus ojos. Su respuesta fue:
+
+*Estoy creciendo y aprendiendo. Pero ya no me siento fantástico.*
+
+El dolor había matriculado a mi amigo en un programa muy difícil, que le daría un postgrado en cuanto a la realidad y al quebrantamiento.
+
+### EL CAMINO A LA DESILUSIÓN
+
+Cuando el sol salía el domingo por la mañana y la fiesta de la Pascua llegaba a su fin, dos seguidores de Jesús regresaban al lugar donde vivían, claramente desilusionados y con la determinación de dejar para siempre en Jerusalén sus ridículos sueños. A pesar de los rumores que circulaban en cuanto a la resurrección, la desanimada pareja comenzó la caminata de doce kilómetros a la aldea de Emaús.
+
+> *Iban hablando entre sí de todas aquellas cosas que habían acontecido. Sucedió que, mientras iban conversando y discutiendo el uno con el otro, el mismo Jesús se acercó e iba con ellos. Pero sus ojos estaban velados, de manera que no le reconocieron.*
+> 
+> *Entonces les dijo:*
+> *—¿Qué son estas cosas de que estáis conversando entre vosotros mientras camináis?*
+> 
+> **Lucas 24:14-17**
+
+Lucas describe la conversación de los discípulos como agitada, que iba de un lado para otro, y con mucho desasosiego, como tratando de encontrar respuestas. Cuando Jesús preguntó: *"¿Qué son estas cosas de que estáis conversando?"* (24:17) Lucas utiliza el término **antiballo**, que significa literalmente *"tanzar de un lado para otro"*. Estos desilusionados seguidores de Jesús querían saber por qué razón sus expectativas en cuanto al Mesías habían tenido un fin tan trágico, y por eso consideraban algunas teorías.
+
+Curiosamente, Dios no permitió que los ojos de los discípulos reconocieran a Jesús. Para ellos, se trataba de una persona más, de un extraño que se les unió de pronto en su viaje. Cuando Lucas escribió la historia, utilizó un hábil recurso narrativo llamado **ironía literaria**, en ella el lector está consciente de hechos importantes ocultos a los personajes de la narración (eso hace que la lectura se vuelva fascinante).
+
+Notemos la divertida paradoja, cuando uno de los discípulos que iban a Emaús responde la pregunta de Jesús:
+
+> *Se detuvieron con semblante triste. Y respondiendo uno de ellos, que se llamaba Cleofas, le dijo:*
+> *—¿Eres tú el único forastero en Jerusalén que no sabes las cosas que han acontecido en estos días?*
+> 
+> **Lucas 24:17,18**
+
+Su pregunta era risible, considerando a quién iba dirigida. *¡Si alguien sabía bien lo que había sucedido, ese era Jesús! ¡Y si alguien no tenía idea de lo que decía, ese era Cleofas!* Pero Jesús anima a los discípulos a hablar, no para humillarlos ni para reprenderlos, sino con un propósito muy diferente. Entonces, les sigue la corriente, preguntándoles:
+
+*—¿Qué cosas?*
+
+Y ellos dijeron:
+
+*—De Jesús de Nazaret, que era un hombre profeta, poderoso en obras y en palabra delante de Dios y de todo el pueblo; y de cómo le entregaron los principales sacerdotes y nuestros dirigentes para ser condenado a muerte, y de cómo le crucificaron. Nosotros esperábamos que él era el que habría de redimir a Israel.*
+
+**Lucas 24:19-21**
+
+Al decir esto, Cleofas revela la causa de su tristeza. Sus nobles expectativas de un Mesías social, político y económico no se habían materializado. Su limitada perspectiva no le permitía aceptar los verdaderos planes del Mesías, en los que la prosperidad económica y la liberación política eran solo una minúscula parte. Pero la expectativa de Cleofas revelaba otra lamentable realidad.
+
+Cleofas sigue hablando...
+
+> *...ahora, a todo esto se añade el hecho de que hoy es el tercer día desde que esto aconteció. Además, unas mujeres de los nuestros nos han asombrado: Fueron muy temprano al sepulcro, y al no hallar su cuerpo, regresaron diciendo que habían visto visión de ángeles, los cuales les dijeron que él estaba vivo. Algunos de los nuestros fueron al sepulcro y hallaron como las mujeres habían dicho, pero a él no le vieron.*
+
+**Lucas 24:21-24**
+
+En el primer siglo, cuando los cristianos se reunían, solían leer este escrito y otros en voz alta. Por eso, cuando oían que Cleofas conocía todos los hechos, pero no entendía su significado, la tensión debió haber sido intolerable para la congregación hasta que alguien no aguantaba más y decía abruptamente: *"¡Él resucitó!, sí que eres lento para entender las cosas".*
+
+Cleofas y su acompañante lo tenían todo claro en cuanto a los hechos, pero les faltaba la capacidad de ver lo que debía haberles sido fácilmente visible. Tres perspectivas equivocadas cubrían sus ojos como capas de una película oscura, que les impedía ver la verdad y que los mantenían todo el tiempo buscando respuestas en medio de una oscuridad desesperante. Jesús vino a ellos para quitarles una capa tras otra, hasta que pudieran ver claramente.
+
+En primer lugar, a su perspectiva le faltaba una dimensión espiritual, lo cual los dejaba con una simple interpretación humana de los hechos. Veamos la manera como Cleofas caracterizó la muerte de Jesús. Pongamos cuidado en la ausencia de cualquier intervención divina. Veía a Jesús como *"profeta delante de Dios y de todo el pueblo"*, a quien los principales sacerdotes y los dirigentes *"entregaron"* y *"crucificaron"*.
+
+Pero Jesús no veía lo sucedido de la misma manera. En su juicio delante de Pilato, él dijo: *"No tendrías ninguna autoridad contra mí, si no te fuera dada de arriba"* (Juan 19:11). Su discípulo Pedro diría después a los mismos *"principales sacerdotes y dirigentes"*
+
+> *...Jesús de Nazaret fue hombre acreditado por Dios ante vosotros con hechos poderosos, maravillas y señales que Dios hizo por medio de él entre vosotros, como vosotros mismos sabéis. A éste, que fue entregado por el predeterminado consejo y el previo conocimiento de Dios, vosotros matasteis clavándole en una cruz por manos de inicuos.*
+> 
+> **Hechos 2:22,23** (cursivas añadidas)
+
+Pedro añadió más tarde: *"Dios cumplió así lo que había anunciado de antemano por boca de todos los profetas, que su Cristo había de padecer"* (Hechos 3:18)
+
+Poco después de esto, la comunidad de creyentes se identificó con el sacrificio voluntario de Jesucristo. En medio de la persecución, alababan a Dios, diciendo: *"Porque verdaderamente, tanto Herodes como Poncio Pilato con los gentiles y el pueblo de Israel se reunieron en esta ciudad contra tu santo Siervo Jesús, al cual ungiste, para llevar a cabo lo que tu mano y tu consejo habían determinado de antemano que había de ser hecho"* (Hechos 4:27,28; cursivas añadidas)
+
+Eso es ver al mundo desde una perspectiva divina! Reconocían que las personas que ellos pensaban que estaban jugando un papel tan importante en lo sucedido, personas como Poncio Pilato, Anás y Caifás, no eran más que hilos en la página de la profecía. Aunque Dios no es el autor del mal, y él nunca incita ni tolera el pecado, nada ocurre sin su soberano control. Otros pueden elegir hacer lo malo y hacer que el pueblo de Dios sufra a corto plazo, pero él convertirá las perversas intenciones de los impios en oportunidades para bendecir a aquellenes él protege.
+
+*¿Qué había sucedido con la perspectiva divina de Cleofas?* Antes que comencemos a criticar a Cleofas y a su acompañante, reconozcamos un principio. Cuando la vida no es ya *"fantástica"*, cuando nuestras expectativas se desmoronan y los sueños se desvanecen, es fácil caer en un estado de depresión severa. Las circunstancias se convierten entonces en nuestro tirano. Las personas, especialmente las causantes de nuestro dolor, se convierten en más poderosas que Dios, y nuestra visión se vuelve terrenal, horizontal. Nuestras oraciones parecen rebotar del techo, y vemos a Dios como indiferente a nuestro dolor.
+
+Seamos honestos: Esta es nuestra respuesta natural cuando lo que habíamos planeado cuidadosamente se viene abajo bajo su propio peso.
+
+Permítame señalar que en el caso de los dos desilusionados discípulos, Dios no pudo haber estado más cerca o más involucrado. Pero por las razones que señalaré más tarde, él impidió que vieran a Jesús. Hablando todavía como un anónimo forastero, el Señor les quita la primera capa de sus ojos.
+
+Entonces él les dijo:
+
+> *—¡Oh insensatos y tardos de corazón para creer todo lo que los profetas han dicho! ¿No era necesario que el Cristo padeciese estas cosas y que entrara en su gloria? Y comenzando desde Moisés y todos los Profetas, les interpretaba en todas las Escrituras lo que decían de él.*
+
+**Lucas 24:25-27**
+
+Después de haberles quitado la primera capa, deja al descubierto la segunda: Lo que ellos esperaban determinaba sus expectativas. Cleofas había dicho con nostalgia: *"Nosotros esperábamos que él era el que habría de redimir a Israel"* (Luc. 24:21).
+
+Como ya he dicho, el pueblo de Israel cometió el error de pensar que el Mesías simplemente recrearía los días de gloria del rey David, y que llevaría triunfantemente a Israel a convertirse en un imperio mundial judío. En todo su ministerio Jesús combatio esta limitada perspectiva, y trató de que el pueblo entendiera los designios mucho más grandes que él tenía para el mundo. Pero mientras alguien se aferre a sus propios planes, se mantendrá ciego a la realidad que Dios está creando.
+
+Dios tenía un nuevo pacto en mente. Este pacto se levantaría sobre el antiguo para darle a su pueblo mucho más que poder temporal y riqueza material. El rey de Israel liberaría sin duda a la nación y gobernaría a la totalidad del mundo, pero no antes de liberar a las personas de la esclavitud del pecado y de recrear al mundo hasta en el último de sus átomos. Sería una nueva clase de reino, uno en el que la abundancia material sería el resultado de tener una relación correcta con Dios, no obstante haber estado separados de él. Después de todo, *"no solo de pan vivirá el hombre, sino de toda palabra que sale de la boca de Dios"* (Mat. 4:4)
+
+Deténgase por un momento y considere algunas preguntas: *¿A qué expectativas se está aferrando? ¿Cuál es el futuro que ha determinado para sí mismo? ¿Cuál será su perspectiva si sus planes se deshacen o alguien destroza sus sueños?* Nosotros siempre vemos las circunstancias, especialmente las que involucran una pérdida, como difíciles, cuando la realidad no satisface nuestras expectativas. Además, la impresión de que Dios nos ha abandonado a nuestro sufrimiento, solo hace mayor el dolor de la pérdida y la frustración que producen las dificultades. Los dos discípulos del camino de Emaús sintieron, sin duda, que Dios los había abandonado, y por eso lamentaban la muerte de sus sueños. Pero, irónicamente, la misma perspectiva que les causaba el dolor, les impedía ver a Jesús, a quien tenían en su presencia.
+
+Permítame animarle a dejar de lado sus expectativas personales. Entréguélas a Dios, y abra sus manos para recibir lo que él decida colocar en ellas. Aquí tenemos una sencilla oración de un autor desconocido y que es citada por Jerry Bridges en el libro *Haga crecer su fe*, que descubrí hace poco, y que me ha sido de gran ayuda últimamente:
+
+> *Señor, estoy dispuesto*
+> *a recibir lo que me das;*
+> *a carecer de lo que tú retienes;*
+> *y abandonar lo que tú tomas*
+> *a sufrir lo que tú me impones*
+> *a ser lo que tú requieres.*
+
+Este era el enfoque de que carecían los dos discípulos. Jesús los había ayudado a tener una perspectiva divina y eterna utilizando las Escrituras. Comenzando con el relato del Génesis, aplicando el lirismo de los poetas y enseñando las palabras de los profetas, les demostró por qué era necesaria la muerte del Mesías para vencer al mal. Muy probablemente les recordó los *"cánticos del siervo"* del libro de Isaías, uno de los profetas favoritos de los hebreos. Estos cánticos muestran a una figura recurrente llamada *"el siervo del SEÑOR"*, que traería justicia al mundo (Isa. 42:1-4); que guiaría a su pueblo a tener una relación correcta con Dios (49:5); que iluminaría a las naciones y traería salvación a todos (49:6); que soportaría una humillación injusta (50:6) y que sufriría el castigo divino que otros merecían (52:13-53:12).
+
+El cántico final aplaude al siervo por su sacrificio, y alaba su camino a la gloria por medio de su propia humillación. Es presentado como un cordero que es llevado a un altar y sacrificado como ofrenda por el pecado. El brutal rito del sacrificio de un animal en el templo hebreo enseñaba al adorador que el pecado cuesta caro y que *"la paga del pecado es muerte"* (Rom. 6:23). Dios estableció esta práctica como un medio de gracia para su pueblo. En el caso del Siervo, a diferencia del sacrificio de los hebreos en el que un cordero era recibido por Dios como señal del pecado de una sola persona,
+
+> *...él fue herido por nuestras transgresiones, molido por nuestros pecados. El castigo que nos trajo paz fue sobre él, y por sus heridas fuimos nosotros sanados. Todos nosotros nos descarriamos como ovejas; cada cual se apartó por su camino. Pero el SEÑOR cargó en él el pecado de todos nosotros.*
+
+**Isaías 53:5,6**
+
+Mientras se acercaban a la aldea de Emaús, los dos discípulos estaban tan fascinados, que le pidieron al forastero que pasara la noche con ellos, de acuerdo con las antiguas normas de hospitalidad del cercano oriente. Jesús aceptó la invitación, pero mantuvo su anonimato, porque los discípulos no estaban todavía preparados para que él se manifestara a ellos. La última capa que tenían sobre los ojos no les dejaba ver la verdad: no habían aceptado que se había producido la resurrección.
+
+Habían escuchado los testimonios y conocían todos los hechos, pero simplemente se habían negado a creer con todo su corazón; esta falta de fe había afectado todo. Si estos dos discípulos hubieran creído que Jesús estaba vivo, habrían tenido una actitud diferente en por lo menos dos aspectos. Primero, habrían estado yendo hacia Jerusalén, donde Jesús había sido visto por última vez, no alejándose de ella. Segundo, habrían aceptado los juicios, la crucifixión y la sepultura de Jesús como el cumplimiento de todo lo que él había prometido, no como el fin de sus esperanzas.
+
+Cuando el sol de la tarde descendía más y más para ocultarse en el horizonte, Jesús y los dos seguidores se preparaban para la cena y, sin duda, siguieron su conversación acerca de la necesidad de que el Mesías muriera. La muerte de Jesús, por supuesto, exigía una explicación obvia: *"¿Cómo, entonces, establecería el Mesías su reino para reinar sobre él, si estaba muerto?"*.
+
+> *...estando sentado con ellos a la mesa, tomó el pan, lo bendijo y les dio. Entonces fueron abiertos los ojos de ellos, y le reconocieron. Pero él desapareció de su vista.*
+
+**Lucas 24:30,31**
+
+La frase griega traducida como *"fueron abiertos los ojos de ellos, y le reconocieron"*, significa literalmente *"fueron abiertos completamente los ojos de ellos y llegaron a comprenderle totalmente"*. Este fue más que un reconocimiento pasivo y casual de sus rasgos físicos. *¡Reconocieron a Jesús en todo su significado como el Mesías, el siervo sufriente, el Hijo de Dios y su Salvador resucitado!*
+
+Lucas no nos dice el porqué o de qué manera el partimiento del pan les abrió los ojos. Quizás vieron las marcas de los clavos en sus manos cuando las levantó para dar gracias. O tal vez estuvieron presentes cuando alimentó a los cinco mil hombres y sus familias en el desierto, y reconocieron la manera como él partió el pan. Tampoco podemos estar seguros de que en la última cena pascual en el aposento alto no hubiera otros discípulos, además de los doce. También es posible que el verlo sentado y partir el pan, los transportó a aquel dramático momento cuando él dijo: *"Esto es mi cuerpo que por vosotros es dado. Haced esto en memoria de mí"* (Luc. 22:19). Lo único que sabemos con certeza es que a los dos discípulos se les cayeron las escamas de los ojos, y por primera vez lo vieron todo con completa claridad.
+
+### NUESTRO PROPIO CAMINO
+
+Es lo mismo que sucede hoy en día. Usted está yendo por la vida, andando por los diversos caminos que hay en ella: La escuela, el trabajo, el hogar, el ministerio, cuando de pronto sucede algo que desbarata su rutina o, lo que es peor, reduce su vida a escombros. Si le parece que Dios se encuentra alejado de usted, tenga la seguridad de que él está muy cerca. Sin embargo, es posible que usted tenga una o más perspectivas equivocadas que impidan a sus ojos ver la luz. Déjame sugerirle tres decisiones prácticas que le ayudarán a enfrentar las luchas de la vida diaria, y también a recuperarse de las circunstancias capaces de alterarle la vida.
+
+**Primero:** decida ver la vida a través de los ojos de Dios. Esto no será fácil, porque no es intrínseco a nuestra naturaleza; no podemos hacerlo por nosotros mismos. Tenemos que permitirle a Dios que él eleve nuestra perspectiva. Comience por leer su Palabra, la Biblia, y si no sabe dónde comenzar, comience por el primer libro. He descubierto que leer la Biblia, aunque lo que lea no parezca tener una aplicación directa a lo que estoy experimentando, le da una dimensión vertical a mi perspectiva.
+
+Ore y pídale a Dios que transforme su manera de pensar. Permita que él haga lo que usted no es capaz de hacer. Pídale que le dé una perspectiva eterna y divina. Pídale que reemplace su manera de pensar con la de él. Al Señor le encanta responder nuestras oraciones, y responderá a invitaciones como esa.
+
+**Segundo:** deshágase de sus expectativas. No siga tratando de cambiar al universo para que este funcione de la manera que usted cree que debe hacerlo. El dolor es básicamente el proceso de ajustar nuestra mente, para que esta acepte una situación radicalmente nueva. Cuanto más pronto acepte que las cosas no saldrán como usted quiere, más pronto se producirá su recuperación. Cuando deje de desear que las cosas sean diferentes, usted comenzará a cambiar por dentro. Deshágase de esos resentimientos. Deje de aferrarse a lo que quiere, no importa lo bueno o correcto que esto le parezca. En todo caso, no hacerlo es agotador, ¿verdad?
+
+Cuando renuncie a sus expectativas, pídale al Señor que le muestre su plan. De nuevo, lo hallará escrito en los 66 libros, nuestra única fuente confiable de verdad absoluta. Ore, pídale a Dios que abra sus ojos al futuro que él desea para usted, y resuélvasa a obedecer todo lo que él ha decidido hacer. Tómese su tiempo para hacerlo. La transformación es proceso lento y a veces tedioso.
+
+**Tercero:** acepte la resurrección de Jesús y juegue su futuro por ella. Una fe genuina en el hecho de su resurrección transformará radicalmente su perspectiva de la vida. La muerte de Jesús venció al pecado y al carácter definitivo de la muerte; su resurrección es lo que nos da vida, esperanza y razones para seguir adelante cuando todo parece imposible. El Mesías resucitado nos ofrece la misma vida eterna y abundante de la que él disfruta.
+
+### PERCEPCIÓN MÁS ALLÁ DE LA VISIÓN
+
+Lucas concluye su relato con una pequeña ironía más:
+
+> *Y aconteció que estando sentado con ellos a la mesa, tomó el pan, lo bendijo y les dio. Entonces fueron abiertos los ojos de ellos, y le reconocieron. Pero él desapareció de su vista.*
+
+**Lucas 24:30,31**
+
+Una traducción literal de estas últimas palabras sería: *"él, invisible, se fue de ellos"*, significando con esto que se desvaneció de repente de en medio de ellos después que sus ojos fueron abiertos. Los discípulos habían estado mirando el rostro de Jesús resucitado, pero no se les permitió que lo vieran. ¿Por qué razón? ¿Lo impidió Dios, o estaban ciegos por sus equivocadas expectativas? Yo creo que ambas explicaciones son válidas.
+
+El Señor permitió que el dolor de ellos continuara hasta que dejaran de ser cautivos de sus deseos. Cuando quedaron agotados por su dolor, se desprendieron de sus expectativas del que les preocupaba e impedía que vieran a Jesús en su presencia. Para ayudarlos a liberarse de su perspectiva equivocada, Jesús les ofreció la verdad, una perspectiva sobrenatural y divina, extraída de la cuidadosa consideración de las Escrituras.
+
+Mientras nos aferremos a nuestros deseos y nos mantengamos enfocados en lo que queremos, no podremos ver a Dios, aunque él esté frente a nuestros ojos. Dios, por su paciente y a veces dolorosa misericordia, permite que nos aferremos a nuestros deseos lo más que podamos, hasta que nos cansemos tanto del dolor que eso nos produce y aflojemos la mano. Pero, mientras tanto, él tiene frente a nosotros una alternativa divina, una alternativa que ofrece una gran abundancia a cambio de las bagatelas a las que nos aferramos con desesperación.
+
+Después de que los ojos de los discípulos fueron abiertos a la perspectiva divina, Jesús se hizo invisible a sus ojos físicos, porque ya habían recibido la iluminación que trascendía la necesidad de la visión física. Su nueva esperanza resucitada, mejor que antes, los hizo regresar a Jerusalén para comunicar la buena noticia a los demás.
+
+> *Y se decían el uno al otro:*
+> *—¿No ardía nuestro corazón en nosotros cuando nos hablaba en el camino y nos abría las Escrituras?*
+> *En la misma hora se levantaron y se volvieron a Jerusalén. Hallaron reunidos a los once y a los que estaban con ellos, quienes decían:*
+> *—¡Verdaderamente el Señor ha resucitado y ha aparecido a Simón!*
+> *Entonces ellos contaron las cosas que les habían acontecido en el camino, y como se había dado a conocer a ellos al partir el pan.*
+
+**Lucas 24:32-35**
+
+La vida forjada por el esfuerzo propio no es una vida abundante; es pan hecho de piedras. Es una satisfacción que se disipa pronto y que nos deja después con una necesidad mayor aún no satisfecha. Es una vida que tienta y que apela a los deseos más nobles de nuestra naturaleza, prometiendo resolver las dificultades que nos perturban y satisfacer las necesidades no satisfechas que nos han dejando crónicamente mal equipados para superar los retos de la vida. En consecuencia, el frenesí y la agitación de la vía rápida, es decir la búsqueda afanosa pero vana de más dinero, mayor seguridad y relaciones más placenteras, amenaza con cegarnos lo que tiene mayor importancia. ¿Se acuerdan de mi amigo? ¿Recuerdan cuando su mundo *"¡fantástico!"* se le esfumó rápidamente? Solo entonces comenzó a ver, en realidad, aquello que no estaba notando. El dolor de la pérdida dio nuevos lentes a sus ojos internos.
+
+Jesús dijo: *"Mas bien, buscad primeramente el reino de Dios y su justicia, y todas estas cosas [la satisfacción a vuestras necesidades] os serán añadidas"* (Mat. 6:33). También dijo en cierto momento, cuando el hambre que tenía había llegado a una intensidad que no había conocido antes: *"No solo de pan vivirá el hombre, sino de toda palabra que sale de la boca de Dios"* (Mat. 4:4), una cita directa de las Escrituras.
+
+Dios ha llamado a su creación a que halle satisfacción en una relación personal con él, a que deje de tratar de manejar al mundo conformándolo a sus expectativas y a que deje que él gobierne lo que ha creado. El Señor sigue diciéndonos a través de un antiguo cántico hebreo: *"Estad quietos y reconoced que yo soy Dios"*. Eugene Peterson parafrasea este mandamiento, diciendo: *"Salgan del tráfico! Denme a mí, que soy su Dios altísimo, una mirada detenida y amorosa, más allá de la política, más allá de todo"* (Salmo 46:10, *The Message*).
+
+*¿Está listo para hacer esto?* *¿No está cansado de tratar de hacer las cosas a su manera, o de tratar de hacer que su vida sea lo que usted piensa que tiene que ser?* *¿No es lógico que aparte su mirada de las menudencias que considera importantes, para ver lo que el Cristo resucitado le ofrece a cambio?*
+
+Jesús, el modelo humano, no es sólo nuestro Salvador; también es nuestro ejemplo. Todos sus sueños se hicieron realidad porque estaban en perfecta armonía con la voluntad del Padre. Pero no olvidemos que él también sufrió injusticias, humillaciones, prejuicios, el abandono, la agonía, tristezas y la muerte. Su camino a la gloria lo llevó a la Vía Dolorosa, hasta el Gólgota y luego a la tumba.
+
+Si la vida de Jesús no fue siempre *"fantástica"*, tampoco lo será la nuestra. Lo *"fantástico"* está al otro lado de nuestra propia resurrección. Hasta que llegue ese momento, busquemos la abundancia en las cosas corrientes de la vida y especialmente durante las pruebas. Invitemos entonces a Jesús a nuestro hogar, a que se siente a nuestra mesa, a que parta el pan de la vida y que, sobre todo, abra nuestros ojos.
