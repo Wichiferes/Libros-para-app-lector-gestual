@@ -1,0 +1,303 @@
+## Motivación
+
+### Cómo reinventar un campamento de reclutas, rebeliones en la residencia de ancianos y el locus de control
+
+El viaje se había planeado como una celebración, un itinerario de veintinueve días por Sudamérica que llevaría a Robert, que acababa de cumplir los sesenta, y a su esposa, Viola, primero a Brasil, y luego, en los Andes, a Bolivia y Perú. El recorrido incluía visitas a ruinas incas, un trayecto en barco por el lago Titicaca, un mercado de artesanía de vez en cuando y algún que otro rato dedicado a la observación de aves.
+
+Tanta relajación —había bromeado Robert con sus amigos antes de partir— parecía peligrosa. Ya preveía la fortuna que iba a gastarse en llamadas a su secretaria. En los últimos cuarenta años, Robert Philippe había hecho de una pequeña gasolinera un imperio de los recambios de automóvil en la Luisiana rural y se había convertido en un magnate sureño gracias al trabajo duro, el carisma y una actividad febril. Además del negocio de recambios de automóviles, poseía también una empresa química, una papelera, varios terrenos y una inmobiliaria. Y ahí estaba ahora, entrando en su séptima década y convencido por su esposa para pasar un mes en un montón de países donde —eso sospechaba— iba a resultar tremendamente difícil encontrar un televisor en que poder ver un buen partido de fútbol americano de la competición anual entre los equipos de la Universidad Estatal de Luisiana y la Universidad de Mississippi.
+
+A Robert le gustaba decir que no había un solo camino de tierra o callejuela en toda la costa del Golfo por los que no hubiera conducido al menos una vez en aras de su negocio. A medida que la Philippe S.A. había ido creciendo, Robert se había hecho famoso por arrastrar a empresarios de grandes ciudades como Nueva Orleans y Atlanta hasta bares destartalados y prohibirles marcharse sin haber repelado todas las costillas y vaciado todas las botellas. A la mañana siguiente, mientras todos trataban de recuperarse de dolorosas resacas, Robert los convencía para que firmaran acuerdos valorados en millones. Los camareros sabían muy bien que debían llenar su vaso de agua con gas mientras servían cócteles a los peces gordos. Robert llevaba años sin probar el alcohol.
+
+Era miembro de los Caballeros de Colón y también de la Cámara de Comercio, antiguo presidente de la Asociación de Mayoristas de Luisiana y de la Comisión del Puerto del Gran Baton Rouge, presidente de su banco local y fiel donante del partido político que ese día se mostrara más predispuesto a aprobar los permisos de sus negocios. «Nunca habrá conocido a un hombre al que le guste tanto trabajar», me decía su hija, Roxann.
+
+Robert y Viola habían estado esperando con impaciencia ese viaje a Sudamérica. Pero cuando se bajaron del avión en La Paz, mediado su mes de recorrido, Robert empezó a comportarse de una manera extraña. Fue tambaleándose por todo el aeropuerto y tuvo que sentarse para tomar aliento en la recogida de equipajes. Cuando se le acercó un grupo de niños pidiéndole monedas, Robert se las tiró a los pies y se echó a reír. En el autobús de camino al hotel, se lanzó a un incoherente monólogo en voz alta sobre varios países que había visitado y el relativo atractivo de las mujeres que los habitaban. Quizá fuera la altitud. Con sus 3.600 metros sobre el nivel del mar, La Paz es una de las ciudades más altas del planeta.
+
+Una vez deshechas las maletas, Viola instó a Robert a echar una cabezada. Él dijo que no le apetecía. Quería salir. Durante la hora siguiente recorrió la ciudad comprando baratijas y poniéndose hecho una furia cada vez que los lugareños no entendían el inglés. Al final aceptó volver al hotel y se quedó dormido, pero por la noche se despertó varias veces para vomitar. A la mañana siguiente dijo que estaba mareado, mas se enfadó cuando Viola le sugirió que descansara. Se pasó el tercer día en la cama. El cuarto día Viola decidió que ya era suficiente e interrumpió las vacaciones.
+
+De regreso en Luisiana, Robert pareció mejorar. Su desorientación desapareció gradualmente y dejó de decir cosas raras. Sin embargo, su esposa y sus hijos seguían preocupados. Robert estaba apático y se negaba a salir de casa a menos que lo empujaran. Viola había supuesto que se precipitaría a la oficina en cuanto volvieran, pero después de cuatro días ni siquiera había llamado a su secretaria. Cuando su mujer le recordó que se acercaba la temporada de caza del ciervo y que tendría que sacarse la licencia, Robert le dijo que ese año pensaba saltársela. Entonces ella telefoneó a un médico. Al poco se dirigían a la Clínica Ochsner, en Nueva Orleans.
+
+El jefe de neurología, el doctor Richard Strub, sometió a Robert a una batería de pruebas. Los signos vitales eran normales. El análisis de sangre no mostraba nada inusual. No había ningún indicio de infección, diabetes, infarto o apoplejía. Robert demostró que entendía el periódico del día y que podía recordar claramente su infancia. Era capaz de comprender un relato breve. La **Escala Wechsler de Inteligencia para Adultos Revisada** reveló un CI de 124.
+
+—¿Puede describirme su negocio? —le preguntó el doctor Strub.
+
+Robert le explicó cómo estaba organizada su empresa y los detalles de unos cuantos contratos recientemente firmados.
+
+—Su esposa dice que se comporta usted de manera distinta —añadió el doctor Strub.
+
+—Sí —respondió Robert—. Por lo visto, no tengo tanto empuje como antes.
+
+«No parecía preocuparle —me contaría más tarde el doctor Strub—. Me habló de los cambios de personalidad como quien no quiere la cosa, como si hablara del tiempo».
+
+Excepto aquella repentina apatía, el doctor Strub no pudo encontrar ningún signo de enfermedad o lesión. Le sugirió a Viola que aguardaran unas semanas para ver si el estado de ánimo de su marido mejoraba. Pero cuando volvieron al cabo de un mes, no había ningún cambio. Robert le había dicho a su esposa que no le apetecía ver a sus viejos amigos. Ya no leía. Antes la enfurecía ver la tele con él porque cambiaba constantemente de canal, buscando un programa más interesante; ahora Robert se quedaba mirando fijamente la pantalla, indiferente a lo que dieran. Al final lo habían convencido de que fuera a la oficina, pero su secretaria decía que se pasaba las horas a su mesa mirando al vacío.
+
+—¿Se siente infeliz o deprimido? —le preguntó el doctor Strub.
+
+—No —respondió Robert—. Me siento bien.
+
+—¿Puede decirme a qué dedicó el día de ayer?
+
+Robert le describió una jornada viendo la televisión.
+
+—¿Sabe? Su esposa me dice que sus empleados están preocupados porque no le ven mucho por la oficina —añadió el doctor Strub.
+
+—Supongo que ahora me interesan más otras cosas —le respondió Robert.
+
+—¿Como qué?
+
+—¡Ah!, pues no sé —contestó Robert, y luego se quedó en silencio mirando la pared.
+
+El doctor Strub le prescribió varios medicamentos —fármacos para combatir los desequilibrios hormonales y los trastornos de atención—, pero ninguno pareció surtir efecto. Las personas que sufren depresión dicen que se sienten infelices y describen pensamientos desesperados. En cambio Robert aseguraba sentirse satisfecho con la vida. Admitía que su cambio de personalidad era extraño, pero no le contrariaba.
+
+El doctor le hizo una resonancia magnética, que le permitió obtener imágenes del interior del cráneo. Muy adentro, cerca del centro de la cabeza, vio una pequeña sombra, lo que indicaba que a causa de un derrame se había acumulado una diminuta cantidad de sangre temporalmente en una parte del cerebro de Robert conocida como **cuerpo estriado**. Tales lesiones, en casos raros, pueden causar daños cerebrales o cambios de humor. Pero, salvo por la apatía, había poco en el comportamiento de Robert que indicara que sufriera una discapacidad neurológica.
+
+Un año después, el doctor Strub envió un artículo a la revista *Archives of Neurology*.[2] «El cambio de conducta [de Robert] se caracterizaba por la apatía y la falta de motivación —escribía—. Ha renunciado a sus aficiones y no acierta a tomar decisiones oportunas en su trabajo. Sabe qué acciones se requieren en su empresa, pero las aplaza y no se preocupa por los detalles. No hay presencia de depresión». La causa de tal pasividad —sugería el doctor Strub— era aquel ligero daño en su cerebro que posiblemente había provocado la altitud de Bolivia. Sin embargo, hasta eso resultaba incierto. «Es posible que las hemorragias sean casuales y que la altitud no haya cumplido ningún papel fisiológico».
+
+Se trataba de un caso interesante, pero en última instancia no concluyente, escribía el doctor Strub.
+
+Durante las dos décadas siguientes aparecieron un montón de estudios más en revistas médicas. Un profesor de sesenta años había experimentado una repentina «pérdida de interés». Había sido un experto en su campo, con una férrea ética del trabajo. De pronto, un día, sencillamente se detuvo. «Es solo que me falta ímpetu, energía —le dijo a su médico—. No tengo vitalidad. He de forzarme para levantarme por las mañanas».[3]
+
+Una joven de diecinueve años había quedado inconsciente unos momentos debido a una fuga de monóxido de carbono y luego parecía haber perdido toda motivación para realizar las tareas más básicas. Se pasaba el día sentada en la misma postura a menos que se viera obligada a moverse. Sus padres descubrieron que no podían dejarla sola —como escribió un neurocirujano— después de «haberla encontrado en la playa, con fuertes quemaduras solares, en el mismo lugar donde se había tendido varias horas antes, bajo una sombrilla: una intensa inercia le había impedido cambiar de postura según la proyección de la sombra conforme el sol había ido cambiando».
+
+Un policía jubilado empezó a levantarse «tarde por las mañanas, no se lavaba a menos que le instaran a hacerlo, pero obedecía dócilmente en cuanto su esposa se lo pedía. Luego se sentaba en su butaca, de la que no se movía». A un hombre de mediana edad le picó una avispa y, no mucho después, perdió el deseo de relacionarse con su esposa, sus hijos y sus amigos.
+
+A finales de la década de los años ochenta, un neurólogo francés de Marsella llamado **Michel Habib** supo de algunos de esos casos e, intrigado, se puso a buscar en archivos y revistas historias similares. Los estudios que encontró eran raros, pero coherentes: un familiar llevaba a un paciente a que lo examinaran, quejándose de un repentino cambio de conducta y de pasividad. Los doctores no encontrarían nada malo desde una perspectiva médica. Los resultados de los pacientes eran normales cuando se les hacían pruebas para determinar una posible enfermedad mental. Tenían los CI entre medios y altos y parecían físicamente sanos. Ninguno de ellos decía que se sentía deprimido ni se quejaba de su suerte.
+
+Habib empezó a ponerse en contacto con los médicos que habían tratado a aquellos pacientes y les pidió las resonancias magnéticas. Entonces descubrió otra coincidencia: todos los individuos apáticos tenían diminutos puntitos de derrames en su cuerpo estriado, el mismo lugar donde Robert tenía una pequeña sombra.
+
+El cuerpo estriado actúa como una especie de central de envíos del cerebro, retransmitiendo órdenes de áreas como la **corteza prefrontal**, donde se toman las decisiones, a una parte más antigua de nuestra neurología, los **ganglios basales**, donde surgen el movimiento y las emociones.[4] Los neurólogos creen que el cuerpo estriado ayuda a traducir las decisiones en acciones y desempeña un importante papel en la regulación de nuestros estados de ánimo.[5] El daño producido por los derrames en el cuerpo estriado de los pacientes apáticos era pequeño; demasiado pequeño —decían algunos de los colegas de Habib— para causar sus cambios de conducta. Sin embargo, aparte de aquellos puntitos, Habib no pudo encontrar nada más que explicara por qué había desaparecido su motivación.
+
+Hace tiempo que los neurólogos se interesan por las lesiones en el cuerpo estriado porque este se halla relacionado con la **enfermedad de Parkinson**.[7] Pero, mientras
+
+que el Parkinson suele causar temblores, pérdida de control físico y depresión, los pacientes que estudió Habib solo parecían perder su ímpetu. «Los parkinsonianos tienen problemas para iniciar el movimiento —me explicó Habib—. Pero los pacientes apáticos no tenían problemas de movimiento. Sencillamente no sentían ningún deseo de moverse».
+
+La joven de diecinueve años a quien no podían dejar sola en la playa, por ejemplo, era perfectamente capaz de limpiar su habitación, fregar los platos, doblar la ropa limpia y cocinar siguiendo recetas cuando se lo mandaba su madre. Sin embargo, si no se le pedía que ayudara, no se movía en todo el día. Si su madre le preguntaba qué quería para cenar, ella le respondía que le daba igual.
+
+Cuando lo examinaban los médicos, el profesor apático de sesenta años «permanecía inmóvil y mudo durante períodos interminables, sentado ante el examinador, esperando la primera pregunta», escribió Habib. Cuando se le pedía que describiera su trabajo, podía hablar de complicadas ideas y citar artículos de memoria. Luego volvía a sumirse en el silencio hasta que se le formulaba otra pregunta.
+
+Ninguno de los pacientes estudiados por Habib respondía a la medicación y tampoco parecían mejorar con apoyo psicológico. «Los pacientes muestran una indiferencia más o menos absoluta a acontecimientos de la vida que normalmente provocarían una respuesta emocional, positiva o negativa», escribió Habib.
+
+«Era como si la parte de su cerebro donde reside la motivación, donde se almacena el impulso vital, hubiera desaparecido por completo —me comentaba Habib—. No había pensamientos negativos, no había pensamientos positivos. No había pensamientos en absoluto. No es que se hubieran vuelto menos inteligentes o menos conscientes del mundo. Sus antiguas personalidades seguían allí dentro, pero había una total ausencia de brío o de ímpetu. Su motivación se había desvanecido completamente».
+
+La sala donde se realizó el experimento, en la Universidad de Pittsburgh, estaba pintada de un alegre amarillo y había una máquina para hacer resonancias magnéticas, un monitor de ordenador y un investigador sonriente que parecía demasiado joven para tener ya un doctorado. A todos los participantes en el estudio
+
+se los conducía a la sala, se les pedía que se quitaran las joyas y dejaran cualquier objeto metálico que llevaran en los bolsillos y luego se los invitaba a tenderse en una camilla de plástico que se deslizaba dentro de la máquina de resonancias.
+
+Una vez tendidos, veían una pantalla de ordenador.[8] El investigador explicaba que iba a aparecer en el monitor un número entre el 1 y el 9. Antes de que apareciera esa cifra, los participantes tenían que adivinar si iba a ser superior o inferior a 5 presionando distintos botones. El investigador añadía que habría varias rondas de adivinación. Explicaba también que el juego no entrañaba habilidad alguna. No se ponía a prueba ninguna aptitud. Y aunque no se lo decía a los participantes, pensaba asimismo que aquel era uno de los juegos más aburridos que existían. De hecho, él lo había diseñado explícitamente de ese modo.
+
+Lo cierto era que al investigador, **Mauricio Delgado**, no le importaba si los participantes acertaban o no. Al contrario, le interesaba entender qué partes de su cerebro se activaban cuando participaban en un juego enormemente aburrido. Mientras adivinaban los números, la resonancia magnética registraba su actividad cerebral. Delgado quería identificar dónde se originaban las sensaciones neurológicas de excitación y anticipación, esto es, dónde se originaba la motivación. Les decía a los participantes que podían marcharse cuando quisieran; pero sabía, por experiencia, que la gente seguía intentando adivinar los números una y otra vez, en ocasiones durante horas, esperando a ver si se habían equivocado o habían acertado.
+
+Cada participante se tumbaba dentro de la máquina y miraba atentamente la pantalla. Apretaba botones y hacía predicciones. Alguno lo celebraba cuando ganaba o se lamentaba si perdía. Delgado, monitorizando la actividad de sus cerebros, veía que el cuerpo estriado de aquellas personas —su central de envíos— se iluminaba debido a la actividad cada vez que jugaban, independientemente del resultado. Delgado sabía que esa clase de actividad del cuerpo estriado se hallaba asociada a reacciones emocionales, en particular a los sentimientos de expectación y excitación.
+
+Delgado estaba terminando una sesión, cuando un participante le preguntó si podía seguir jugando por su cuenta, en casa.
+
+—No creo que sea posible —le respondió Delgado, explicándole que ese juego solo existía en su ordenador.
+
+Además —añadió, compartiendo su secreto con aquel hombre—, el experimento estaba amañado. Para asegurarse de que el juego era el mismo para todos los participantes, Delgado había programado el ordenador a fin de que todo el mundo
+
+ganara la primera ronda, perdiera la segunda, ganara la tercera, perdiera la cuarta, etcétera, siguiendo una pauta predeterminada. El resultado se había preestablecido. Era como apostar con una moneda de dos caras y no de cara y cruz.
+
+—Bueno —respondió el hombre—, no importa. Solo quiero seguir jugando.
+
+«Aquello era extraño —me explicaría Delgado más tarde—. No hay ninguna razón por la que habría de querer seguir jugando sabiendo que estaba amañado. Es decir, ¿qué gracia tiene un juego amañado? Sus decisiones no surten ningún efecto. Pero tardé cinco minutos en convencerle de que en realidad no quería llevarse el juego a casa».
+
+Durante días, Delgado siguió pensando en aquel hombre. ¿Por qué le había interesado tanto ese juego? En realidad, ¿por qué había entretenido a tantos otros participantes? Los datos del experimento habían ayudado a Delgado a identificar qué partes del cerebro de las personas se activaban en un juego de adivinación, pero los datos no explicaban por qué se sentían motivadas a jugar de verdad.
+
+De modo que, al cabo de unos años, Delgado montó otro experimento. Se reclutó a una nueva serie de participantes. También se trataba de un juego de adivinación, pero esta vez con una diferencia sustancial: la mitad del tiempo se permitía a los participantes tratar de adivinar por sí mismos; el resto era el ordenador el que adivinaba por ellos.
+
+Cuando empezaban a jugar, Delgado observaba la actividad de su cuerpo estriado. En esta ocasión, cuando se permitía a la gente tomar sus propias decisiones, su cerebro se iluminaba exactamente igual que en el experimento anterior. Mostraban los equivalentes neurológicos de la anticipación y la excitación. Pero durante las rondas en que los participantes no tenían ningún control sobre sus apuestas, cuando el ordenador decidía por ellos, su cuerpo estriado básicamente no daba señales. Era como si su cerebro perdiera todo interés en el ejercicio. Había una «vigorosa actividad en el núcleo caudado —escribirían más tarde Delgado y sus colegas— solo cuando a los sujetos» se les permitía tratar de adivinar. «La anticipación de la propia decisión se asociaba a una mayor actividad en las regiones corticoestriadas, en particular el cuerpo estriado ventral, implicadas en los procesos afectivos y motivacionales».
+
+Es más, cuando Delgado preguntó a los participantes qué les había parecido el juego, le dijeron que disfrutaban mucho más cuando controlaban sus decisiones. Les preocupaba ganar o perder. Si el ordenador era el que mandaba —añadieron—, el experimento se parecía a una tarea escolar. Se aburrían y querían que terminara de una vez.
+
+Para Delgado eso no tenía sentido. Las probabilidades de ganar o perder eran exactamente las mismas, con independencia de que fuera el participante o el ordenador el que tuviera el control. Permitir a alguien tratar de adivinar, en lugar de esperar a que un ordenador trate de adivinar por él, no debería suponer ninguna diferencia real en la experiencia del juego. Las reacciones neurológicas de la gente deberían haber sido idénticas en ambos casos. Pero, de algún modo, permitir a la gente tomar decisiones transformaba el juego. En lugar de ser una lata, se convertía en un reto. Los participantes se sentían más motivados a jugar simplemente porque creían que tenían el control.[11]
+
+## III
+
+En las últimas décadas, en la medida en que la economía ha cambiado y las grandes empresas que prometían un trabajo para toda la vida han dado paso a los autoempleos y a las denominadas «carreras migratorias», entender la motivación se ha hecho cada vez más importante. En 1980, más del 90 por ciento de la población activa estadounidense dependía de un jefe.[12] Hoy, más de una tercera parte de los estadounidenses que trabajan lo hacen como autónomos, como contratistas o en otras situaciones eventuales.[13] Los trabajadores que han tenido éxito en esta nueva economía son los que saben decidir por sí mismos cómo ocupar el tiempo y distribuir su energía.[14] Entienden cómo establecer objetivos, priorizar tareas y decidir sobre a qué proyectos dedicarse. Según diversos estudios, las personas que saben motivarse a sí mismas ganan más dinero que sus colegas, refieren niveles más altos de felicidad y afirman que se sienten más satisfechos con sus familias, sus empleos y sus vidas.
+
+Los libros de autoayuda y los manuales de liderazgo suelen definir la automotivación como un rasgo estático de nuestra personalidad o el resultado de un cálculo neurológico en el que subconscientemente sopesamos esfuerzos frente a recompensas. Pero los científicos afirman que la motivación es más complicada. Es más bien una habilidad, similar a la lectura o la escritura, que puede aprenderse y perfeccionarse. Los científicos han descubierto que las personas pueden mejorar su motivación si practican de la manera adecuada. El truco —dicen— consiste en comprender que un requisito previo de la motivación es creer que tenemos autoridad sobre nuestras acciones y nuestro entorno. Para motivarnos, debemos sentir que tenemos el control.
+
+«La necesidad de control es un imperativo biológico»,[15] escribía en 2010 un grupo de psicólogos de la Universidad de Columbia en la revista *Trends in Cognitive Sciences*. Cuando las personas creen que tienen el control, tienden a esforzarse y exigirse más. Por regla general, son más seguras de sí mismas y les cuesta menos superar los reveses.[16] Las personas que creen que tienen autoridad sobre sí mismas a menudo viven más que sus coetáneas.[17] Este instinto de control es tan crucial en el modo como se desarrolla nuestro cerebro que los niños, una vez que aprenden a alimentarse, se resisten a los intentos de control de los adultos a pesar de que probablemente la sumisión les garantice la comida en la boca.[18]
+
+Una forma de demostrarnos que tenemos el control es tomando decisiones. «Cada decisión —por pequeña que sea— refuerza la percepción de control y autoeficacia», escribían los investigadores de Columbia. Incluso cuando tomar una decisión no reporta beneficio alguno, seguimos queriendo la libertad de elegir.[19] «Los animales y los humanos muestran una preferencia por decidir antes que por no decidir, incluso cuando esa decisión no confiere ninguna recompensa adicional», señalaba Delgado en un trabajo publicado en la revista *Psychological Science* en 2005.[20]
+
+A partir de estas ideas ha surgido una teoría de la motivación: el primer paso para generar empuje es dar a la gente la oportunidad de tomar decisiones que le confieran una sensación de autonomía y autodeterminación.[21] En los experimentos, las personas se sienten más motivadas a realizar tareas difíciles cuando dichas tareas se presentan como decisiones antes que como órdenes. Esa es una de las razones por las que, por ejemplo, nuestro proveedor de televisión por internet nos hace tantas preguntas cuando nos damos de alta en el servicio. Si nos preguntan si preferimos un extracto en formato digital a una factura detallada, o el «paquete ultra» a la «selección platino», o HBO a Showtime, probablemente nos sentiremos más motivados a pagar la factura mensual. Si experimentamos cierto control, estaremos más dispuestos a seguir el proceso.
+
+«Es como cuando está atrapado en un atasco en la autopista y ve que se acerca una salida, y quiere cogerla aunque sepa que probablemente tardará más en llegar a casa, ¿no? —me decía Delgado—. Eso es porque nuestro cerebro se excita ante la posibilidad de tomar el control. No llegarás antes a casa, pero te sientes mejor porque crees que estás al mando».
+
+Esta es una provechosa lección para cualquiera que espere motivarse a sí mismo o motivar a otros, pues sugiere un método fácil para activar la voluntad de actuar: encontrar una opción, casi cualquier opción, que nos permita ejercer el control. Si estás luchando por contestar una tediosa retahíla de correos electrónicos, opta por contestar a uno de la parte central de la bandeja de entrada. Si estás intentando redactar un escrito, escribe primero la conclusión, o empieza haciendo los gráficos, o la parte que te parezca más interesante. Para encontrar la motivación necesaria a la hora de enfrentarte a un empleado desagradable, escoge el lugar donde se hará la reunión. Para realizar la siguiente llamada comercial, decide qué pregunta formularás primero.
+
+La motivación se activa tomando decisiones que nos demuestran que tenemos el control. La opción concreta que escojamos importa menos que la afirmación de control. Es esta sensación de autodeterminación la que nos estimula. De ahí que los participantes en los experimentos de Delgado estuvieran dispuestos a jugar una y otra vez si sentían que estaban al mando.
+
+Eso no equivale a decir que, en consecuencia, la motivación resulte siempre fácil. En realidad, a veces no basta el simple hecho de tomar una decisión. En ocasiones, para motivarnos de verdad, necesitamos algo más.
+
+## IV
+
+Cuando **Eric Quintanilla** estampó su firma en el formulario que lo convertía oficialmente en marine estadounidense, el reclutador le estrechó la mano, le miró a los ojos y le dijo que había tomado la decisión correcta.
+
+—Es la única que podía tomar en mi caso, señor —respondió Quintanilla.
+
+Había querido que sus palabras transmitieran valor y seguridad, pero le tembló la voz y tenía la mano tan sudada que luego ambos hubieron de secarse las palmas en los pantalones.
+
+Quintanilla ya había cumplido los veintitrés años. Cinco años antes se había graduado en el instituto en una pequeña población a una hora al sur de Chicago. Había pensado ir a la universidad, pero no sabía qué estudiar, no tenía claro qué quería hacer después; para ser sinceros, no estaba seguro de demasiadas cosas. De modo que se matriculó en un colegio universitario local y se sacó una licenciatura en estudios generales, esperando que le sirviera para encontrar trabajo en una tienda de móviles de un centro comercial. «Rellené, no sé, como diez solicitudes —explicaba Quintanilla—. Pero nunca me contestó nadie».
+
+Encontró un trabajo a tiempo parcial en una tienda de hobbies y de vez en cuando
+
+conducía un camión de hielo cuando el chofer titular estaba enfermo o de vacaciones. Por las noches jugaba al videojuego *World of Warcraft*. No era así como había imaginado su vida. Estaba preparado para algo mejor. Decidió proponer matrimonio a la chica con quien salía desde el instituto. La boda fue estupenda. Pero después todavía seguía en el mismo sitio. Y entonces su esposa se quedó embarazada. Él probó una vez más con las tiendas de móviles y consiguió una entrevista. La noche antes de la cita estuvo ensayando con su esposa.
+
+—Cariño —le dijo ella—, tienes que darles una razón para que te contraten. Diles simplemente que la idea de trabajar con ellos te emociona.
+
+Al día siguiente, cuando el encargado de la tienda le preguntó por qué quería vender teléfonos móviles de aquella operadora, T-Mobile, Quintanilla se quedó en blanco.
+
+—No lo sé —dijo—. Y no me interesa.
+
+Y era verdad. No tenía ni idea.
+
+Al cabo de unas semanas Quintanilla fue a una fiesta y se encontró con uno de sus antiguos compañeros de clase, que acababa de regresar a casa después de una instrucción militar básica, con nueve kilos de menos, abultados músculos y una recién descubierta sensación de confianza en sí mismo. Contaba chistes e intentaba ligar con las chicas. A la mañana siguiente, Quintanilla le dijo a su mujer que a lo mejor consideraba la posibilidad de alistarse en los marines. A ella no le gustó la idea, y a su madre tampoco, pero a él no se le ocurría ninguna otra cosa que hacer. Una noche se sentó a la mesa de la cocina, trazó una línea vertical en el centro de una hoja de papel, escribió «Cuerpo de Marines» en el lado izquierdo e intentó llenar el derecho con otras opciones. Lo único que se le ocurrió fue: «Que me asciendan en la tienda de hobbies».
+
+Cinco meses después llegaba al Centro de Reclutas del Cuerpo de Marines de San Diego en plena noche, se metía arrastrando los pies en una habitación junto con otros ochenta jóvenes, le afeitaban la cabeza, comprobaban su grupo sanguíneo, reemplazaban su ropa por un traje de faena y empezaba una nueva vida.
+
+El campamento de reclutas de trece semanas de duración al que fue a parar Quintanilla en 2010 era un experimento relativamente nuevo en los doscientos treinta y cinco años que llevaba el Cuerpo de Marines tratando de crear al marine perfecto. Durante la mayor parte de su historia, el programa de instrucción de los marines se había centrado en moldear a adolescentes pendencieros hasta convertirlos en soldados disciplinados. Pero quince años antes de que Quintanilla se alistara, un general de
+
+cincuenta y tres años llamado **Charles C. Krulak** había sido ascendido a comandante, el rango más alto entre los marines. Krulak creía que la instrucción básica necesitaba un cambio. «Veiámos a aspirantes mucho más débiles —me explicó—. Muchos de esos chicos no solo necesitaban disciplina; necesitaban una reforma mental. Nunca habían formado parte de un equipo deportivo, nunca habían tenido un verdadero empleo, nunca habían hecho nada. Ni siquiera usaban el léxico de la ambición. Habían seguido instrucciones toda su vida».[23]
+
+Eso era un problema, porque el Cuerpo de Marines necesitaba de manera creciente tropas capaces de tomar decisiones independientes. Como a ellos les gusta decir, los marines son diferentes de los soldados y los marineros. «Somos los primeros en llegar y los últimos en marcharnos —afirmaba Krulak—. Necesitamos personas con suma iniciativa». En el mundo de hoy, eso significa que requieren hombres y mujeres capaces de luchar en sitios como Somalia y Bagdad, donde las reglas y tácticas cambian de manera impredecible y con frecuencia los marines tienen que decidir —por sí solos y en tiempo real— la mejor línea de acción.[24]
+
+«Empecé a hablar con psicólogos y psiquiatras, tratando de determinar cómo podiámos enseñar a esos reclutas a pensar por sí mismos —explicaba Krulak—. Estaban llegándonos muy buenos reclutas, pero se hallaban desorientados y les faltaba empuje. Lo único que sabían hacer era lo imprescindible. Era como trabajar con un montón de blandengues. Los marines no pueden ser blandengues».
+
+Krulak, que empezó a leer estudios para enseñar motivación, se sintió especialmente intrigado por una investigación, realizada por el Cuerpo de Marines años antes, en la que se mostraba que los mejores marines eran los que poseían un fuerte **«locus de control interno»**, una creencia que podía influir en su destino a través de las decisiones que tomaban.
+
+El denominado **«locus de control»** ha sido un importante tema de estudio en psicología desde la década de los años cincuenta.[25] Los investigadores han descubierto que las personas con un locus de control interno tienden a elogiarse o a culparse por sus éxitos o fracasos, en lugar de atribuir la responsabilidad a cosas que escapan a su influencia. Un estudiante con un fuerte locus de control interno, por ejemplo, atribuirá las buenas notas a su esfuerzo, antes que al hecho natural de tener «coco». Un vendedor con un locus de control interno culpará de una venta perdida a su falta de garra, antes que a la mala suerte.
+
+«Se ha vinculado el locus de control interno con el éxito académico, con una mayor motivación y con la madurez social, a menores incidencias de estrés y
+
+depresión, y a una vida más larga»,[26] escribió en 2012 un equipo de psicólogos en la revista *Problems and Perspectives in Management*. Las personas con un locus de control interno tienden a ganar más dinero, tener más amigos y permanecer más tiempo casadas, y afirman gozar de mayor éxito y satisfacción general.
+
+Por el contrario, tener un locus de control externo —creer que nuestra vida se ve influida principalmente por acontecimientos que escapan a nuestro control— «se correlaciona con niveles más altos de estrés, [a menudo] porque el individuo percibe que la situación está más allá de su capacidad de afrontarla», escribía el mencionado equipo de psicólogos.
+
+Diversos estudios muestran que se puede influir en el locus de control de alguien mediante el entrenamiento y la retroalimentación. Un experimento realizado en 1998, por ejemplo, presentaba a 128 estudiantes de unos diez años una serie de difíciles rompecabezas.[27] Después se le decía a cada uno de ellos que lo había hecho muy bien. A la mitad se les decía asimismo: «Debes de haber trabajado duro para resolver estos problemas». Se ha comprobado que decir a unos estudiantes de diez años que han trabajado duro activa su locus de control interno, porque trabajar duro es algo que nosotros decidimos hacer. Elogiar a los estudiantes por trabajar duro refuerza su creencia en que tienen el control de sí mismos y su entorno.
+
+A la otra mitad de los estudiantes también se les informó de que lo habían hecho bien y luego se les dijo: «Debes de ser realmente inteligente para resolver estos problemas». Elogiar a los estudiantes por su inteligencia activa el locus de control externo. La mayoría de los estudiantes de diez años no creen que puedan escoger cuán inteligentes son. En general, los niños pequeños piensan que la inteligencia es una capacidad innata, de modo que decirles que son inteligentes refuerza su creencia en que el éxito o el fracaso se basan en factores que escapan a su control.
+
+Luego se invitó a todos los estudiantes a trabajar en otros tres rompecabezas de dificultad creciente.
+
+A los estudiantes a quienes se había elogiado por su inteligencia —aquellos a los que se había instado a pensar en términos de cosas en las que no podían influir— tenían muchas más probabilidades de centrarse en los rompecabezas más fáciles en la segunda ronda de juego, pese a haber sido elogiados por ser inteligentes. Estaban menos motivados para esforzarse. Más tarde confesaron que el experimento no había sido demasiado divertido.
+
+En cambio, a los estudiantes a quienes se había elogiado por trabajar duro —aquellos a los que se había alentado a enmarcar la experiencia en términos de
+
+autodeterminación— fueron directamente a los rompecabezas difíciles. Trabajaron más tiempo y lo hicieron mejor. Después dijeron que se lo habían pasado muy bien.
+
+«El locus de control interno es una habilidad aprendida —me explicaba **Carol Dweck**, la psicóloga de Stanford que ayudó a realizar el estudio—.[28] La mayoría de nosotros la aprendemos muy pronto. Pero el sentimiento de autodeterminación de algunas personas se ve reprimido por el modo cómo se las educa, o por las experiencias vividas, y olvidan cuánta influencia pueden ejercer en su propio destino».
+
+«Es entonces cuando el entrenamiento resulta útil, porque si pones a las personas en situaciones donde ejercer la sensación de control, donde se despierte de nuevo ese locus de control interno, podrán empezar a crear hábitos que les hagan creer que están al mando de su propia vida, y cuanto más sientan eso, más control tendrán realmente de sí mismos».
+
+Para Krulak, este tipo de estudios parecían dar en la clave de cómo enseñar motivación a los reclutas. Si lograba rediseñar la instrucción básica de modo que forzara a estos a tomar el control de sus propias decisiones, ese impulso —esperaba— podría hacerse más automático. «Hoy lo llamamos enseñar "tendencia a la acción" —me explicaba Krulak—. La idea es que, una vez que los reclutas han tomado el control de unas cuantas situaciones, empiezan a aprender lo bien que sienta.
+
+«Nunca le decimos a nadie que es un líder nato. "Nato" significa que escapa a tu control —añadía—. En cambio, les enseñamos que el liderazgo se aprende, que es producto del esfuerzo. Llevamos a los reclutas a experimentar esa emoción de tomar el control, de sentir el subidón de estar al mando. Una vez que los hacemos adictos, se enganchan a la sensación».
+
+Para Quintanilla, ese seminario empezó en cuanto llegó. Al principio hubo largos días de marchas forzadas, interminables abdominales y flexiones y aburridas prácticas de fusil. Los instructores le gritaban sin cesar («Tenemos una reputación que mantener», me decía Krulak). Pero, junto con esos ejercicios, Quintanilla también afrontó una constante serie de situaciones que lo obligaban a tomar decisiones y asumir el control.
+
+Así, por ejemplo, en la cuarta semana de instrucción se ordenó al pelotón de Quintanilla que limpiara el comedor. Los reclutas no tenían ni idea de cómo hacerlo. No sabían dónde se guardaban los productos de limpieza ni cómo funcionaba el lavavajillas industrial. Acababa de finalizar la comida y no estaban seguros de si tenían que guardar o tirar las sobras. Cada vez que alguien se acercaba a un instructor en busca de consejo, lo único que encontraba era un ceño fruncido. De modo que el
+
+pelotón se puso a tomar decisiones. La ensalada de patatas se tiró, las hamburguesas sobrantes fueron al refrigerador y el lavavajillas se cargó con tanto detergente que el suelo no tardó en cubrirse de espuma. Necesitaron tres horas y media, incluido el tiempo dedicado a enjugar la espuma, para limpiar el comedor. Se equivocaron tirando alimentos comestibles, apagaron accidentalmente el congelador para los helados y de algún modo lograron perder dos docenas de tenedores. Sin embargo, cuando terminaron, el instructor se acercó al miembro más bajito y tímido del pelotón y le dijo que había observado cómo se había hecho valer cuando había habido que decidir dónde guardar el ketchup. En realidad era bastante obvio dónde guardarlo: había un enorme grupo de estantes que no contenía más que tarros de este producto.[30] Pero el recluta tímido sonrió satisfecho al sentirse reconocido.
+
+«Yo reparto una serie de elogios, todos ellos concebidos para ser inesperados —explicaba el sargento **Dennis Joy**, un instructor de aspecto absolutamente intimidante que un día me enseñó el Centro de Reclutas—. Nunca se te recompensará por hacer lo que te resulta fácil. Si eres un atleta, nunca te elogiaré por haber hecho una buena carrera. Solo al tío bajito se le felicita por correr rápido. Solo al tío tímido se le reconoce que ha asumido un papel de liderazgo. Elogiamos a la gente por realizar cosas difíciles. Así aprenden a creer que pueden hacerlas».
+
+El punto fuerte del rediseñado entrenamiento básico de Krulak era el **Crisol**, una agotadora prueba de tres días que se lleva a cabo en la última etapa del campamento. Quintanilla tenía terror al Crisol; él y sus compañeros de dormitorio lo comentaban entre murmullos por las noches. Había rumores y conjeturas descabelladas. Alguien contó que el año anterior un recluta había perdido un miembro cuando estaba a mitad de prueba. El Crisol de Quintanilla comenzó un martes cuando despertaron a su pelotón a las dos de la madrugada y les dijeron que debían prepararse para marchar, reptar y trepar a lo largo de 80 kilómetros de pistas de obstáculos.[31] Cada persona cargaría con 14 kilos de material. Solo les repartirían dos comidas por cabeza durante las siguientes cincuenta y cuatro horas. Como mucho, contarían con apenas unas pocas horas de sueño. Alguien se lesionaría. El que no se moviera o quedara demasiado rezagado sería expulsado del Cuerpo de Marines.
+
+A mitad del Crisol, los reclutas se enfrentaron a una tarea llamada «el tanque del sargento Thompson».
+
+—¡El enemigo ha contaminado químicamente esta zona! —les gritó un instructor,
+
+señalando una fosa del tamaño de un campo de fútbol—. Tenéis que atravesarla cargados con todo el equipo y con las máscaras antigás puestas. Si un recluta toca el suelo, habréis fallado y tendréis que volver a empezar. Si pasáis más de sesenta minutos en la fosa, habréis fallado y tendréis que volver a empezar. Debéis obedecer a vuestro jefe de equipo. Repito: no podéis proceder sin una orden verbal directa del jefe de equipo. Debéis oír la orden antes de actuar; de lo contrario, habréis fallado y tendréis que volver a empezar.
+
+El equipo de Quintanilla formó un corro y usaron una técnica aprendida en la instrucción
+
+—¿Cuál es nuestro objetivo? —preguntó un recluta.
+
+—Cruzar la fosa —contestó otro.
+
+—¿Qué hacemos con las tablas? —preguntó otro recluta, señalando un par de tablones con cuerdas atadas.
+
+—Podríamos ponerlas una detrás de otra —respondió algún otro.
+
+El jefe de equipo dio una orden verbal y el corro se deshizo para probar la idea en el borde de la fosa. Subidos a una de las tablas, trataron de arrastrar la otra hacia delante. Nadie podía mantener el equilibrio. Volvieron a formar un corro.
+
+—¿Qué hacemos con las cuerdas? —preguntó un recluta.
+
+—Levantar los tablones —dijo otro, que aconsejó subirse a las dos tablas a la vez y utilizar las cuerdas para alzar cada pieza al alimón, como si fueran enanos.
+
+Se pusieron las máscaras antigás y se subieron a las tablas, con el jefe de equipo
+
+delante. «¡Izquierda!», gritó este, y los reclutas tiraron de uno de los tablones ligeramente hacia delante. «¡Derecha!»... Empezaron a avanzar arrastrando las tablas por la fosa. Pero al cabo de diez minutos se vio que aquello no funcionaba. Algunos levantaban la tabla demasiado deprisa; otros la empujaban demasiado lejos. Y como todos llevaban máscaras antigás, era imposible oír las órdenes del jefe. Ya habían avanzado demasiado para darse la vuelta, pero a ese ritmo tardarían horas en cruzar la fosa. Los reclutas empezaron a gritarse unos a otros que tenían que parar.
+
+El jefe ordenó una pausa. Se giró hacia el hombre que tenía justo detrás.
+
+—¡Fíjate en mis hombros! —le gritó a través de su máscara antigás.
+
+Entonces encogió primero el hombro izquierdo y luego el derecho. Observando el ritmo del jefe, el recluta de detrás de él podía coordinar cómo levantar las tablas. El único problema era que no respetaba una de las directrices: les habían dicho que no podían actuar hasta que oyera una orden verbal de su jefe. Pero, con las máscaras puestas, realmente nadie oía nada. Aun así, no había ninguna otra forma de hacerlo. De modo que el jefe de equipo empezó a encoger los hombros y balancear los brazos mientras gritaba las órdenes. Al principio nadie cogía el ritmo, de manera que se puso a cantar a voz en grito una de las canciones aprendidas en sus largas marchas. El recluta de detrás de él oyó lo suficiente para engancharse. Su vecino también. Al final, todos cantaban, encogían los hombros y se balanceaban al mismo ritmo. Cruzaron la fosa en veintiocho minutos.
+
+«Técnicamente, podríamos haberles hecho volver a empezar porque ninguno de ellos oía una orden verbal directa del jefe —me comentaría más tarde un sargento de instrucción—. Pero esa es la gracia del ejercicio: sabemos que con la máscara antigás no puedes oír nada. La única forma de atravesar la fosa es encontrar un truco. Intentamos enseñarles que no puedes limitarte a obedecer órdenes; tienes que tomar el control y resolver las cosas por ti mismo».
+
+Veinticuatro horas y otra docena de obstáculos después, el pelotón de Quintanilla se reunía para afrontar el reto final del Crisol, una larga y escarpada colina a la que llamaban la Parca.
+
+—No tenéis que ayudaros unos a otros durante esta prueba —advirtió Krulak—. Ya ha pasado otras veces. Los reclutas se derrumban y no tienen compañeros, así que se quedan atrás.
+
+En ese momento Quintanilla llevaba ya dos días de marcha. Había dormido menos de cuatro horas. Tenía el rostro entumecido y las manos llenas de ampollas y cortes por acarrear bidones llenos de agua a través de obstáculos. «En la Parca había tíos
+
+vomitando —me contaría después—. Uno llevaba el brazo en cabestrillo». Cuando empezaron a subir la montaña, no dejaban de tropezar. Estaban todos tan agotados que avanzaban como a cámara lenta, apenas progresaban. De modo que comenzaron a entrelazarse, cogiéndose del brazo, para no resbalar pendiente abajo.
+
+—¿Por qué hacéis eso? —le preguntó resollando a Quintanilla el compañero con quien compartía la carga, empleando una pauta de «llamada y respuesta» que habían practicado en las caminatas. Cuando las cosas se pusieran más feas, sus instructores les habían dicho que tenían que formularse unos a otros preguntas que empezaran con un «¿por qué?».
+
+—Para convertirme en un marine y dar una vida mejor a mi familia —respondió Quintanilla.
+
+Una semana antes su esposa había dado a luz a una niña, Zoey. Después del parto se le había permitido hablar con ella por teléfono cinco minutos. Había sido su único contacto con el mundo exterior en casi dos meses. Si pasaba el Crisol, podría ver a su esposa y a su hija recién nacida.
+
+*Si puedes vincular algo difícil a una decisión que te importa, la tarea resulta más fácil*, le habían dicho los instructores a Quintanilla. De ahí que se formularan unos a otros preguntas que empezaban con un «por qué». Convirtamos una pesada tarea en una decisión significativa, y surgirá la motivación.
+
+El pelotón coronó la última cima cuando el sol estaba en lo más alto y llegó tambaleándose hasta un claro con un mástil. Todo el mundo se quedó inmóvil. Lo habían conseguido. El Crisol había terminado. Un instructor caminó a través de su formación, deteniéndose ante cada hombre para ponerle la insignia del Cuerpo de Marines, con el águila, el globo y el ancla, en sus manos. Eran oficialmente marines.
+
+«Uno piensa que en el campamento de reclutas solo habrá gritos y combate —me explicaría más tarde Quintanilla—. Pero no es así. No lo es en absoluto. Tiene más que ver con aprender a obligarse a hacer cosas que uno creía que no podía hacer. La verdad es que resulta muy emotivo».
+
+La instrucción básica, como la propia carrera en el Cuerpo de Marines, ofrece pocas recompensas materiales; el sueldo inicial de un marine es de unos 17.600 dólares anuales. Sin embargo, el cuerpo cuenta con uno de los índices más altos de satisfacción profesional. La instrucción que proporciona a unos 40.000 reclutas al año ha transformado las vidas de millones de personas, que, como Quintanilla, no tenían ni idea de cómo motivarse y orientarse para tomar el control de sus vidas. Desde las reformas de Krulak, tanto la continuidad de nuevos reclutas en la institución como los
+
+índices de ascensos mejoraron más de un 20 por ciento.[32]
+
+## V
+
+**Viola Philippe**, la esposa del antiguo magnate de los recambios de automóvil de Luisiana, ya sabía bastante de motivación antes de que ella y Robert volaran a Sudamérica. Había nacido con albinismo —su cuerpo no generaba la enzima tirosinasa, crucial en la producción de melanina— y, como resultado, su piel, su pelo y sus ojos carecían de pigmento, y su vista era muy deficiente. Era oficialmente ciega; solo podía leer acercando mucho la cara a la página y con una lupa. «Aun así, nunca conocerá a una persona más decidida —me dijo su hija, Roxann—. Podía hacer cualquier cosa».
+
+Cuando Viola era una niña, los responsables de su distrito escolar habían intentado que fuera a educación especial pese a que eran sus ojos, y no su cerebro, los problemáticos. Pero ella se negó a dejar la clase donde estaban sus amigos. Permaneció en aquella aula hasta que los administradores cedieron. Después de graduarse fue a la Universidad Estatal de Luisiana y en la facultad pidió que le proporcionaran a alguien que le leyera los libros de texto en voz alta. La facultad accedió. En su segundo año conoció a Robert, que pronto abandonó los estudios para empezar a lavar y engrasar coches en un concesionario Ford local. Él también la animó a que ella dejara la facultad, pero Viola rechazó educadamente y acabó la carrera. Se casaron en diciembre de 1950, cuatro meses después de que ella se graduara.
+
+Tuvieron seis hijos, uno detrás de otro, y mientras Robert levantaba su imperio, Viola llevaba la casa. Hacían reuniones matutinas y gráficos que mostraban las tareas diarias reservadas a cada hijo. Los viernes por la noche había controles, en los que cada uno exponía sus objetivos para la semana siguiente. «Eran como dos gotas de agua, los dos tremendamente dinámicos —explicaba Roxann—. Mamá se negaba a dejar que sus discapacidades la limitaran. Creo que por eso le resultó tan duro que papá perdiera su motivación».
+
+Cuando la apatía se apoderó de Robert, al principio Viola se concentroó en cuidar de él. Contrató a enfermeras para que lo ayudaran a hacer ejercicio y colaboró con su hermano a fin de formar un comité que supervisara y luego vendiera las empresas de
+
+Robert. Pero al cabo de un tiempo no pudo hacer nada más. Ella se había casado con un bon vivant, un hombre tan rebosante de vida que le costaba llegar al supermercado porque constantemente se detenía a charlar con todo el mundo. Ahora Robert se pasaba el día sentado en una silla delante de la tele. Viola estaba deprimida. «No me hablaba —declaró ante el tribunal cuando la familia puso un pleito por el dinero que consideraba que le debía el seguro dadas las lesiones neurológicas de Robert—. No estaba... no parecía estar interesado en nada de lo que yo hacía. Yo le preparaba las comidas y era más o menos una cuidadora. Supongo que podrían considerarme una cuidadora».
+
+Durante unos años se compadeció de él. Luego se enfadó. Después pasó a la acción. Si Robert no iba a mostrar motivación para recuperar su vida, ella lo obligaría a ponerse en marcha. Lo haría arrancar. Empezó por acribillarlo a preguntas. Cuando le preparaba la comida, le soltaba una avalancha de alternativas: ¿bocadillo o sopa? ¿Lechuga o tomate? ¿Jamón o pavo? ¿Y mayonesa? ¿Agua con hielo o zumo? Al principio, realmente no pretendía nada con ello: solo estaba frustrada y quería hacerlo hablar.
+
+Pero luego, al cabo de unos meses de acoso, Viola descubrió que, cada vez que presionaba a Robert para tomar decisiones, él parecía salir brevemente de su caparazón. Por un momento bromeaba con ella, o le comentaba un programa que había estado viendo. Una noche, después de que ella lo forzara a tomar una docena de decisiones sobre lo que iba a comer, en qué mesa iban a sentarse y qué música escucharían, él empezó a hablarle largo y tendido, recordándole una historia graciosa de después de su boda, cuando se habían quedado fuera de casa sin poder entrar bajo una lluvia torrencial. Se la contó en tono despreocupado, riendo por lo bajo al recordar que había intentado forzar una ventana. Era la primera vez que Viola lo oía reír en años. Durante unos minutos fue como si el viejo Robert hubiera vuelto. Luego se sentó delante de la tele y se sumió otra vez en el silencio.
+
+Viola prosiguió con su campaña y, con el tiempo, fue reapareciendo una parte cada vez mayor del viejo Robert. Viola lo felicitaba, halagaba y recompensaba cuando, por un instante, se parecía a su antiguo yo. Cuando volvieron al doctor Strub, el neurólogo de Nueva Orleans, para la revisión anual siete años después del viaje a Sudamérica, el médico apreció la diferencia. «Saludaba a las enfermeras y les preguntaba por sus hijos —explicaba Strub—. Sacaba temas de conversación conmigo, me preguntaba por mis aficiones. Opinaba sobre la ruta que habían de
+
+seguir para volver a casa. Cosas que en cualquier otra persona no habrías considerado, pero que en su caso era como si alguien volviera a encender las luces».
+
+A medida que los neurólogos han estudiado cómo funciona la motivación en nuestro cerebro, se han ido convenciendo cada vez más de que las personas como Robert no pierden empuje porque hayan perdido la capacidad de motivarse. Lejos de ello, su apatía se debe a una disfunción emocional. Una de las cosas que observó Habib, el investigador francés, en todas las personas a quienes estudió era que todas compartían un extraño desapego emocional. Una mujer apática le decía que apenas había reaccionado cuando murió su padre. Un hombre le explicaba que no había sentido el impulso de abrazar a su esposa o a sus hijos desde que la pasividad se había apoderado de él. Cuando Habib les preguntó a sus pacientes si sentían tristeza por lo mucho que habían cambiado sus vidas, todos le respondieron que no. No sentían nada.
+
+Los neurólogos han sugerido que este entumecimiento emocional es la causa de que algunas personas no se vean motivadas por nada. En los pacientes de Habib, las lesiones del cuerpo estriado les impedían experimentar la sensación de recompensa derivada de asumir el control. Su motivación quedaba inactiva porque habían olvidado lo bien que sienta tomar una decisión. En otras situaciones, es lo que la gente no ha aprendido nunca lo que parece estar autodeterminado, porque han crecido en un barrio que parece ofrecer muy pocas opciones o porque han olvidado las recompensas de la autonomía después de mudarse a una residencia de ancianos.
+
+Esta teoría sugiere cómo ayudarnos a nosotros mismos y ayudar a otros a reforzar el propio locus de control interno. Debemos recompensar la iniciativa, felicitar a la gente por su motivación, celebrar cuando un bebé quiere alimentarse por sí solo. Debemos aplaudir al niño que muestra una obstinación desafiante y arrogante, y recompensar al estudiante que encuentra un modo de hacer las cosas saltándose las normas.
+
+Esto, obviamente, es más fácil en teoría que en la práctica. Todos aplaudimos la motivación hasta que un niño que empieza a andar se niega a ponerse los zapatos, un padre anciano arranca una cajonera de la pared o un adolescente rompe las normas. Pero así es cómo se fortalece el locus de control interno. Así es cómo nuestra mente aprende y recuerda lo bien que sienta ejercer el control. Y a menos que practiquemos la autodeterminación y nos demos a nosotros mismos recompensas emocionales por nuestra autoafirmación subversiva, nuestra capacidad de motivación puede desvanecerse.
+
+Es más, hemos de demostrarnos que nuestras decisiones resultan significativas. Cuando iniciamos una nueva tarea, o afrontamos un quehacer desagradable, debemos tomarnos un momento para preguntarnos «por qué». ¿Por qué nos obligamos a subir esa colina? ¿Por qué nos forzamos a alejarnos de la tele? ¿Por qué es tan importante contestar ese correo electrónico o tratar con un compañero de trabajo cuyas demandas parecen tan insignificantes?
+
+Una vez que empezamos a preguntarnos por qué, esas pequeñas tareas se convierten en fragmentos de una constelación más amplia de proyectos, objetivos y valores fundamentales. Empezamos a reconocer que las pequeñas tareas rutinarias pueden tener enormes recompensas emocionales, puesto que nos demuestran que tomamos decisiones significativas, que tenemos genuinamente el control de nuestra propia vida. Es entonces cuando florece la automotivación: cuando comprendemos que contestar a un correo electrónico o ayudar a un compañero de trabajo por sí solos podrían ser actos relativamente poco importantes, pero forman parte de un proyecto de mayor envergadura en el que creemos, que deseamos alcanzar y que hemos decidido llevar a cabo. La motivación, en otras palabras, es una decisión que tomamos porque forma parte de algo mayor y emocionalmente más gratificante que la tarea inmediata que haya que
+
+realizar.
+
+En 2010, veintidós años después de sus vacaciones sudamericanas con Robert, a Viola le diagnosticaron un cáncer de ovario. La enfermedad tardó dos años en acabar con ella. En cada fase, Robert estuvo a su lado, ayudándola a levantare por las mañanas y recordándole que se tomara la medicación por las noches. Le hacía preguntas para distraerla del dolor y la alimentaba cuando ella se debilitó. Cuando Viola falleció, Robert permaneció sentado durante días en la cama de ella, ahora vacía. Sus hijos, preocupados por la posibilidad de que recayera en el estado de apatía, le sugirieron que visitara al neurólogo de Nueva Orleans. Quizá el médico recomendaría algo para impedir que volviera a ser presa del silencio.
+
+No, respondió Robert. No era la apatía la que lo mantenía encerrado. Solo necesitaba tiempo para reflexionar sobre sesenta y dos años de matrimonio. Viola había ayudado a Robert a construir una vida y luego, cuando todo se le había ido de las manos, le había ayudado a reconstruirla de nuevo. Ahora él solo quería honrar todo ello haciendo una pausa por unos días, les dijo a sus hijos. Al cabo de una semana salió de casa y almorzó fuera. Luego fue a hacer de canguro de sus nietos. Robert falleció dos años después, en 2014. En su necrológica se señalaba que se mantuvo activo hasta el
+
+final.
